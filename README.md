@@ -3,3 +3,8 @@
 
 --------------------------------
 -----------------------------------
+
+<figure class="half">
+    <img src="img/logo/logo1.jpg">
+    <img src="img/logo/logo2.jpg">
+</figure>
