@@ -9,8 +9,11 @@
   
   
 -----------------------------------
-2018-9-20 21:0:4
-- 用古诗词说网络流行语，让你瞬间逼格飙升有木有？？ get√起来[doge] 
+
+- <font color=red> 用古诗词说网络流行语，让你瞬间逼格飙升有木有？？ get√起来[doge] 
+- 2018-9-20 21:0:4
+
+
 <p align="center">
   <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj53t6soj20b108hq32.jpg" >
   <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj544b73j20b908haa2.jpg" >
