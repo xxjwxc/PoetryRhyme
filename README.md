@@ -12,7 +12,7 @@
 
 - #### <font color=green> 用古诗词说网络流行语，让你瞬间逼格飙升有木有？？ get√起来[doge] </font>
 
-- #### <font color=red>2018-9-20 21:0:4 </font>
+- #### <font color=red> 2018-9-20 21:0:4 </font>
 
 <p align="center">
   <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj53t6soj20b108hq32.jpg" >
