@@ -7,22 +7,14 @@
   # 精选网络中优美短语，每日更新
 
 -----------------------------------
-
-- #### <font color=green> 用古诗词说网络流行语，让你瞬间逼格飙升有木有？？ get√起来[doge] </font>
-- #### <font color=red> 2018-9-20 21:0:4 </font>
-
+- #### <font color=green> 横舟千山外，指按一江秋。
+轻醉多薄雾，独对天地幽。 ​ </font>
+- #### <font color=red> 2019-09-18 18:00:03 </font>
 <p align="center">
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj53t6soj20b108hq32.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj544b73j20b908haa2.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj54fhywj20b20c2dg1.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj54rbvsj20b309q74i.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj553zdkj20b707bjrc.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj55g5pbj20b00dedg1.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj55orvpj20az08zjri.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj560jbfj20av09974g.jpg" >
-  <img src="http://wx4.sinaimg.cn/large/9b696272ly1fevj56bzkwj20b40byaac.jpg" >
-</p>
 
+<img src="http://wx1.sinaimg.cn/largenail/9b696272gy1g71hqhcwybj20j60btq3z.jpg" >
+<img src="http://wx1.sinaimg.cn/largenail/9b696272gy1g71hqhdyerj20j60cb0uh.jpg" >
+</p>
 -----------------------------------
 
 
