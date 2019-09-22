@@ -16,7 +16,7 @@
 
 **中国传统色 —— 绿 名字和颜色都很美[微风]**
 
-<font color=red> 2018-9-20 21:0:4 </font>
+<font color=red size=3> 2018-9-20 21:0:4 </font>
 
 <p align="center">
 <img src="http://wx3.sinaimg.cn/large/9b696272gy1g71hrldn3aj20j60csdgx.jpg" width="300">
