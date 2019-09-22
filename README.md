@@ -7,8 +7,10 @@
   # 精选网络中优美短语，每日更新
 
 -----------------------------------
-``` 横舟千山外，指按一江秋。轻醉多薄雾，独对天地幽。 ```
-<font color=red> 2019-09-18 18:00:03 </font>
+- <font color=green> 中国传统色 —— 绿
+名字和颜色都很美[微风]​​​​ </font>
+``` 2018-9-20 21:0:4 ```
+
 <p align="center">
 <img src="http://wx3.sinaimg.cn/large/9b696272gy1g71hrldn3aj20j60csdgx.jpg" width="300">
 <img src="http://wx3.sinaimg.cn/large/9b696272gy1g71hrldn3aj20j60csdgx.jpg" width="300">
