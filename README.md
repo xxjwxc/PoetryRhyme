@@ -12,6 +12,73 @@
 
 -----------------------------------
 ===========================================
+### 最近出了cp功能[佩奇]
+### 等一个陌生人的小红点[兔子]
+### 听说有了cp之后可以解锁更多玩音遇的姿势哦[害羞] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/007aRuojly1g7g6rhyngtj30v91voaz5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/007aRuojly1g7g6tiui61j30v91vo7wi.jpg" width=33%>
+</p>
+<font color=red size=1>2019-09-29 10:40:02 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 兰烬落，屏上暗红蕉。闲梦江南梅熟日，夜船吹笛雨萧萧。人语驿边桥。
+### 
+### ——《梦江南·兰烬落》皇甫松 (唐) ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799gsxc4ej20c80fhabi.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799gsxdb2j20c80hxmyw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799gsxitkj20c80fztac.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799gsxw2pj20c80hedhl.jpg" width=33%>
+</p>
+<font color=red size=1>2019-09-28 18:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 不知君心烈刺骨，为颜一笑花落尽。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bncisvj20gn0gomzm.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bo0mf7j20gn0gowh5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799boum3fj20gn0gotb8.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bq4zcsj20gn0gomzr.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bqst24j20gn0goju0.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bqvtraj20gn0godid.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bqwgsij20gn0gomzq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bqwv2oj20gn0go412.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g799bqxg15j20gn0go76p.jpg" width=33%>
+</p>
+<font color=red size=1>2019-09-27 21:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 嘻嘻嘻[兔子] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/007aRuojly1g7e98x8avqj30dl0crmyv.jpg" width=33%>
+</p>
+<font color=red size=1>2019-09-27 14:21:32 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 花径不曾缘客扫，蓬门今始为君开。 ​
 ===========================================
 
