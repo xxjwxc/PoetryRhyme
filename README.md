@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### #回味百遍仍意蕴悠长的诗句#
+### 《诗经》中的经典诗句[good]
+### 
+### （via：人民日报 ​​​​） ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnopvk1dj20c80ns796.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnor1hcpj20c80oj79g.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnorxmpdj20c80nvgql.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnosv2brj20c80m7gq1.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnotlirkj20c80ndwj8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnoud0vwj20c80myn1t.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnov9330j20c80rs0yj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnow2f0kj20c80rsq8o.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g7qnox2tqjj20c80ovtdr.jpg" width=33%>
+</p>
+<font color=red size=1>2019-10-11 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 「沉鱼」「落雁」
 ### 「闭月」「羞花」 ​​​​
 ===========================================
