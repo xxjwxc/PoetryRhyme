@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### 君子以泽古风小说经典语录
+### 哪句最戳中你心？ ​​​​
+### 
+### #戳中人心的古风语录# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0c53pw5j20go0og0x3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0c5oyzij20go0oggpj.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0c6jxpdj20go0ogdk2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0c7jasvj20go0ogjvj.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0ca6p6ij20go0ogdk0.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0cb2wczj20go0ogwix.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0cbujbkj20go0ogjvg.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0ccrq6tj20go0ogwiz.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g8n0cdgkqdj20go0ogtcu.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-07 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 秋天的美[微风]
 ### 
 ### （图源网络） ​
