@@ -12,6 +12,51 @@
 
 -----------------------------------
 ===========================================
+### #诗词中的冬日景色# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0ir1q3tj20c80lvdi1.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0irj8n2j20c80jignj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0is8b06j20c80iudhw.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0it3gfpj20c80hhq4f.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0itlxzhj20c80ixtai.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0iu90v6j20c80hmmyq.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0iv2yb0j20c80fz0u5.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0ivnvp2j20c80kldi1.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0iwdi3pj20c80hwgna.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-10 11:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 你说，满城春光，与君成双；
+### 后来，春去冬藏，人各一方。
+### 
+### 你说，来日方长，何惧沧桑；
+### 后来，人世凄凉，花谢海棠。
+### 
+### 你说，满城春光，与君成双；
+### 后来，春去冬藏，人各一方。
+### 
+### 你说，衣着红妆，暖我心房；
+### 后来，转身遗忘，不再念想。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g8n0gvy637j20sg0j0q5n.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-09 21:00:04 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### #立冬# 看看古人对#冬天的雅称# ​
 ===========================================
 
