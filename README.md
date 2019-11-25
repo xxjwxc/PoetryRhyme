@@ -12,6 +12,31 @@
 
 -----------------------------------
 ===========================================
+### 一家，一院，一门环[微风]
+### 
+### #传统文化大讲堂# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrnb19dj20c90hswhh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acru68ntj20go0acq45.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrwptq4j20hs0prwik.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrou2cij20fo0nkmyb.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrtezuaj20bm0dw3zn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrptyjej20gm0p0wfd.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrvvpt9j20bh0fa3zu.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrwjadoj20bu0hsgng.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acrsaiwgj20hs0bt0ti.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-25 16:13:42 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 这短短的一生，我们最终都会失去。你不妨大胆一些，爱一个人，攀一座山，追一个梦。
 ### 
 ### —— 《大鱼海棠》 ​​​​
