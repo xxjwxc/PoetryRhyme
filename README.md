@@ -12,6 +12,50 @@
 
 -----------------------------------
 ===========================================
+### 屋顶上的中国，流传千年的古韵之美[微风]
+### 
+### #传统文化大讲堂# ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv1u54cj20b40go0ti.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv3ezz5j20du0kugmv.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv4m4ddj20gq0p0gpi.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv7lpdxj20cs08idgs.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv8oz60j20dw0bidg9.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9acv9lsitj20fo0agabf.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-26 11:00:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 胭脂泪，相留醉，几时重，自是人生长恨水长东。——李煜 ​​​​
+### 
+### #吾爱诗词# #诗词欣赏# #诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9q1q8qj20hs0o140n.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9qqslnj20hs0o140u.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9rkpgsj20hs0umdj1.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9se1bcj20hs0o1tb0.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9t5cmfj20hs0o1tbb.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9tzdbcj20hs0o1q56.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9uueo7j20hs0o1gny.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9vnomvj20hs0o1jtp.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ad9wfqczj20hs0o10v9.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-25 21:00:04 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 一家，一院，一门环[微风]
 ### 
 ### #传统文化大讲堂# ​
