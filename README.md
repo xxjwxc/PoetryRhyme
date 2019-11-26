@@ -12,6 +12,42 @@
 
 -----------------------------------
 ===========================================
+### #有趣的灵魂连墓碑都很酷# 
+### 哈哈哈哈哈看到这行字了呢[允悲] ​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9bqw6kj0cj206o0b1q3p.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-26 21:07:20 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 玩个小游戏，任意点开一个灯笼，看看假如穿越回古代，你会住在哪里~住的不好别打我[笑cry] #国学新青年# #国学# #古代诗人# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adjxms96g20c80c8gnk.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adjy536ng20c80c80up.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adjz3jscg20c80c8gnl.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adjzwdjcg20c80c8gnl.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adk0txzhg20c80c8769.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adk1jm4ng20c80c80up.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adk27ictg20c80c8769.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adk3255ag20c80c8wgg.gif" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9adk3na7og20c80c8wgg.gif" width=33%>
+</p>
+<font color=red size=1>2019-11-26 20:00:04 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 屋顶上的中国，流传千年的古韵之美[微风]
 ### 
 ### #传统文化大讲堂# ​​​​
