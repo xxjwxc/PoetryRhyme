@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### 寓意吉祥的中国纹样[微风] 
+### 
+### （by­­­：巴渝绣娘） ​​​​
+### #传统文化大讲堂# #国学# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlu3622j20ho0hm0we.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlvqttlj20ho0hodj1.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlvufcrj20hq0hq0wn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlvuuqqj20hp0hoadn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlx9b27j20ho0hr42f.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlxb8zsj20hq0hstby.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlx7sxzj20hp0hogp7.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlxc0ccj20hq0howil.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adlxcdbej20ho0hm0we.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-27 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### #有趣的灵魂连墓碑都很酷# 
 ### 哈哈哈哈哈看到这行字了呢[允悲] ​​​
 ===========================================
