@@ -12,6 +12,39 @@
 
 -----------------------------------
 ===========================================
+### 人生八雅
+### 琴，低浅琴音，抚琴来把愁离云。
+### 棋，纵横棋盘，落子声中有心安。
+### 书，寒窗苦思，存心大有鸿鹄志。
+### 画，泼墨挥毫，云肪空留声袅袅。
+### 诗，仰头吟咏，寄情于此妙笔中。
+### 酒，借酒消愁，醉心奈何愁更愁。
+### 花，飞落肩头，染了人心春更柔。
+### 茶，清苦云华，茶馆听雨呷芳芽。
+### 
+### 文/城北南絮无人书 ​​...全文： http://m.weibo.cn/2607374962/4443692880662737 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8cw49pj20j60oo74t.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8cw155j20hl0bkwex.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8cvk7vj20j60om3yx.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8e08rhj20j60nxdgj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8dzrwoj20g40c374m.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8cvlb9j20ho0adt8p.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8czagcj20j60rn0ud.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8cxpaqj20hs0bt3zu.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9ae8e0ek3j20j60rvgmg.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-28 20:00:05 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 中式建筑设计，真的好美！
 ### 几经岁月烟尘，依然韵味犹存。
 ### 
