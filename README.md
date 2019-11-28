@@ -12,6 +12,29 @@
 
 -----------------------------------
 ===========================================
+### 中式建筑设计，真的好美！
+### 几经岁月烟尘，依然韵味犹存。
+### 
+### #传统文化大讲堂# #国学# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adyp0fxsj20dw0ktwhh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adyl9oegj20j60r3gtn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adyn4a3oj20dw0kugn4.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adylwoexj20ax0go0ty.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adyow0gvj20dr0m8t9r.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9adypv07yj20j60pkte3.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-28 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 寓意吉祥的中国纹样[微风] 
 ### 
 ### （by­­­：巴渝绣娘） ​​​​
