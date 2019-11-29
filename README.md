@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### 窗外风景，窗里故事。
+### 透的是风景，看的是意境。 ​​​​
+### 
+### #传统文化大讲堂# #国学# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1mwxhsj20j60cs447.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1ngx7rj20j60csaep.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1oed8xj20j60eedki.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1p7yezj20j60cstfa.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1r9x77j20j609pn0r.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1r8mjbj20j60cttc7.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1rfckwj20j60ctjv5.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1rcj4zj20j60cs7ar.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ae1rcgjdj20j60sqagw.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-29 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 人生八雅
 ### 琴，低浅琴音，抚琴来把愁离云。
 ### 棋，纵横棋盘，落子声中有心安。
