@@ -12,6 +12,31 @@
 
 -----------------------------------
 ===========================================
+### #表达喜欢的一百种方式# [可爱]
+### 
+### #诗词歌赋# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec01gbfj20dw08w750.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec1e71sj20dw08wwf8.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec1j2d6j20dw08wjs5.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec1hytxj20dw08w750.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec315snj20dw08wmxw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec31alkj20dw08w750.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec31bhsj20dw08w750.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec32h3cj20dw08wwf7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272gy1g9aec32d18j20dw08waaw.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-29 20:00:06 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 窗外风景，窗里故事。
 ### 透的是风景，看的是意境。 ​​​​
 ### 
