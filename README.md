@@ -12,6 +12,43 @@
 
 -----------------------------------
 ===========================================
+### 十年行侠，十年独马，却因你一方绣帕，戒了争打。 ​​​​
+### 
+### #吾爱诗词# #中华诗词之美# #诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aegunvb0j20j60eewhb.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aegvgop7j20j60ee41c.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aegwdia0j20j60eeq5r.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aegxcx5fj20j60eeq5r.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aeh5uq9fj20j60eewh8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aeh6g7pwj20j60eedin.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aeh7h0sfj20j60eedih.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aeh936g8j20j60ee0vk.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272gy1g9aeh9vj4vj20j60eemzz.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-01 20:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 长不过执念，短不过善变。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9aee2ylarj20df0m8jsx.jpg" width=33%>
+</p>
+<font color=red size=1>2019-11-30 21:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### #表达喜欢的一百种方式# [可爱]
 ### 
 ### #诗词歌赋# #吾爱诗词# ​
