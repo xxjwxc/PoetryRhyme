@@ -12,6 +12,46 @@
 
 -----------------------------------
 ===========================================
+### 最肯忘却千般虚名，求一世清闲[微风]
+### 
+### #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9iqu7oaphj20h80m8dhq.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-03 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 谁将平地万堆雪，剪刻作此连天花。
+### ——唐·韩愈《悼李花》
+### 
+### #吾爱诗词# #中华诗词之美# #诗词# ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikozxa6dj20j60batbj.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp09zchj20j60clq4i.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp1d76qj20j60btt9z.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp21trej20j60ci0vb.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp2t7fcj20j60bt41o.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp3kj6aj20j60buq61.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp4avytj20j60c1q6z.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp552wvj20j60bxq5i.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1g9ikp623vlj20j60cdjul.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-02 20:00:04 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 十年行侠，十年独马，却因你一方绣帕，戒了争打。 ​​​​
 ### 
 ### #吾爱诗词# #中华诗词之美# #诗词# ​
