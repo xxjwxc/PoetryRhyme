@@ -12,6 +12,178 @@
 
 -----------------------------------
 ===========================================
+### 故宫珍藏玉石珠宝盆景，有幸得见，太美了！
+### 
+### #传统文化大讲堂# #国学新青年# ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6elvj20c80fiabf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6d7jj20c80f1dh6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6kjgj20c80fkq48.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6wwpj20c80fk0u4.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6rf0j209g0bwmyd.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrs6yuij209g0bwt9w.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrsakwuj209g0bw0tw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrsch0tj20c80fttan.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9pfrscjfzj20c80femyp.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-10 11:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 70个中国文化常识，一起学学[微风]
+### 
+### cr.人民日报
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvm0sk7j20dw0kujtf.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvmj38pj20dw0mwwh2.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvn8s6dj20dw0mwn03.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvnxaiwj20dw0mw76w.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvorrhlj20dw0mwacn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvpo6vpj20dw0mwq5z.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvqqh21j20dw0n90vl.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvrgt2qj20dw0i9mz6.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1g9jdvsigsmj20dw0jktaq.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-09 20:00:06 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 岁月或许会沧桑了青葱容颜，却也沉淀了人生底蕴。岁月若云，从容地观云卷云舒；心念如花，静静的在生命里开放。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfm98ek2j20h40bemyk.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfm9wqkxj20ec0l078e.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfmamti9j20h40b0wgb.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-09 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 读山，读水，读人；
+### 品茗，品风，品月。
+### 
+### 简单的心，简朴的物，
+### 简约的人，简洁的情，
+### 简静的日子，一份素美的清喜，
+### 不浓不淡，不深不浅，就已足够。
+### 
+### #中华诗词之美# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkh6s88j20et0l1tbm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkh68x2j20j60c0417.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkhbo1dj20j60d6424.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkh8u7nj20et0lfjvl.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkh84xcj20et0lajvh.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irkh8d7qj20et0m80y6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irki3z44j20et0lcjt6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irki5t2jj20et0latct.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9irki6op6j20et0lawly.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-08 11:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 海棠、宝瓶、月窗、长八方、剑环、叶贝、葫芦、如意、鹤子。
+### #中国古建筑门的经典样式#
+### 
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh7me23j20c90hsq43.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh9l1trj20j60nbdmh.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh1pnmsj20gy0mz420.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh0oq8zj20az0k5wgc.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh6jolej20dq0k50u2.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh3mupqj20ac0dbt9f.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh4xqd7j20ek0mm0up.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irgz3qsbj20920b8mxs.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9irh8lt27j20dl0hhgmi.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-07 11:00:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 忙时井然，闲时自然
+### 顺多偶然，逆多必然
+### 得之坦然，失之怡然
+### 捧则淡然，贬则泰然
+### 悟通八然，此生悠然 
+### 
+### 图 : 丰子恺  #国学新青年# 
+### #传统文化大讲堂# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir941iq5j20j611xwgx.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir945ezaj20j60ocac7.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir943a7qj20j60nd42b.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir9463q1j20j60o1adl.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir949dbtj20j60n5dju.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir94569hj20j60nr797.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir951gwfj20j612bk0p.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir958rsdj20j614sdoh.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir95diu2j20j6131ds6.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-06 21:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 光阴早就把最美妙的东西加在了修炼它的人身上。那个美妙的东西，是清淡，是安稳，是从容不迫，也是一颗最自然的心。—— 雪小禅 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9irc81kzzj20dw0ku7cc.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-06 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 谁将烟焚散，散了纵横的牵绊
+### 听弦断，断那三千痴缠 
+### 
+### #中华诗词之美# #吾爱诗词# #诗词歌赋# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6qiod8j20j60sr77n.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6s5tz3j20a70fa75n.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6t9zkhj20cy0jgabh.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6uead5j20d60jvwha.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6vm8idj20d60jrgm7.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9ir6wsancj20d60jqt9m.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-05 21:00:06 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 70个中国文化常识，一起学学[微风]
 ### 
 ### cr.人民日报
