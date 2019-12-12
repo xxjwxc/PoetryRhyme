@@ -12,6 +12,53 @@
 
 -----------------------------------
 ===========================================
+### #与历史人物有关的成语#  ​​​​
+### 
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw38yduj20dw0scq7m.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw43fd5j20dw0ruq79.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw5a99cj20dw0si0xp.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw6ed7ij20dw0si78t.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw7gzahj20dw0pidjy.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw8etnlj20dw0o6jvc.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfw9hgp1j20dw0ro43g.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfwajwbij20dw1000z8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfwblulcj20dw0uo797.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-12 11:00:05 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “繁华如三千东流水，我只取一瓢爱了解” ——方文山笔下的中国风，你最爱哪一首？ ​​​​
+### 
+### #吾爱诗词# #中华诗词之美# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu61panj20c80c875r.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu629xrj20c80c8gn7.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu62e1ij20c80c8myo.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu61wtlj20c80c8gn7.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu669gvj20c80c80ug.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu65rehj20c80c8406.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu65fqxj20c80c8q4o.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu65q9aj20c80c8q4k.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pfu66f2vj20c80c8402.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-11 20:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 最好的人生状态：安于得失，淡于成败，依旧向前[微风] ​
 ===========================================
 
