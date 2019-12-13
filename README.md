@@ -12,6 +12,31 @@
 
 -----------------------------------
 ===========================================
+### “此幅图是画家回忆儿时故乡的情景，那时的故乡楼宇有时代特色，各种铺面林立，酒楼、药店、茶馆一应俱全；河水穿城而过，河面上数条船只来往，热闹而又忙碌 。” ​ ​​​​—— 张孝友 ·《南乡旧梦》 ​​​​
+### 
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0k9bvrj20j603rmxl.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0l7avjj20j60drqcb.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0m3jpwj20j60pdneo.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0mz8tjj20j60mw7jj.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0nxaa9j20j60moalb.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0oyb7kj20j60mv4dx.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0psjfrj20j60ponfq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0r0uijj20j60mnnd5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pg0rw7hsj20j60pddw6.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-13 21:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 中国传统色 —— 绿
 ### 名字和颜色都很美[微风]
 ### 
