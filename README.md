@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### 中国传统色 —— 绿
+### 名字和颜色都很美[微风]
+### 
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxnv7h0j20j60as74b.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxntgsvj20j60asaa2.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxntinbj20j60asjre.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxnt2b7j20j60as3yi.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxnzla5j20j60asdfv.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxnxobdj20j60aswei.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxntep6j20j60as74f.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxnzoxaj20j60asaa4.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9pfxntk3lj20j60asjrf.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-13 11:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 昨日种种，皆成今我，切莫思量，更莫哀，从今往后，怎么收获，怎么栽。 
 ### 
 ### #中华诗词之美# #吾爱诗词# 
