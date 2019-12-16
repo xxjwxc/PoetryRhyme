@@ -12,6 +12,36 @@
 
 -----------------------------------
 ===========================================
+### #古人不凡的智慧# 
+### 1.不以物喜，不以己悲。　
+### 2.闲静少言，不慕荣利。 
+### 3.古者富贵而名摩灭,不可胜记,唯倜傥非常之人称焉。 
+### 4.简能而任之，择善而从之。 
+### 5.古之所谓豪杰之士者，必有过人之节…… ​​​​
+### 
+### #国学新青年# #传统文化大讲堂# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9swry2j20c80bst9r.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9tg7lkj20c80bndgx.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9uch4mj20c80bodhf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9v8tscj20c80bpq46.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9w1yvwj20c80bpdhd.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9x0vbej20c80bngn3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9xrgcnj20c80bnab3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9yi9g1j20c80bpq45.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xb9z4r0gj20c80bp75f.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-16 15:00:05 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 又是新的一周，愿你事事如意[微风] 
 ### 
 ### #传统文化大讲堂# ​
