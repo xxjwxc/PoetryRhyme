@@ -12,6 +12,52 @@
 
 -----------------------------------
 ===========================================
+### 又是新的一周，愿你事事如意[微风] 
+### 
+### #传统文化大讲堂# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xaywym6dj20j60cqdpv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xaywzkz4j20j60crqd1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xayxvhv1j20j60crtiv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xaywy1x2j20j60cpwm9.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xaz43f4qj20j60csq7w.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xaywuzlqj20j60cgq7k.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-16 08:30:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 人心如水，缘来是船，若不能相随一生，何不静享岁月。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1g9xax0378jj20ho0a3aau.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-15 12:37:08 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 观红尘如黛，揽四季清风，携一份清浅，禅意人生[微风] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1g9pgn8vracj20go0btac7.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-14 21:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### “此幅图是画家回忆儿时故乡的情景，那时的故乡楼宇有时代特色，各种铺面林立，酒楼、药店、茶馆一应俱全；河水穿城而过，河面上数条船只来往，热闹而又忙碌 。” ​ ​​​​—— 张孝友 ·《南乡旧梦》 ​​​​
 ### 
 ### #传统文化大讲堂# #国学新青年# ​
