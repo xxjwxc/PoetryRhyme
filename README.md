@@ -12,6 +12,33 @@
 
 -----------------------------------
 ===========================================
+### #古人无聊的时候都做什么#  候月、赏雪、寻幽、莳花、酌酒、听雨、品茗、​​​​焚香，抚琴.....
+### 
+### 举手间，眉目淡定，心下晏然。缓缓如敬神灵，拈一香，品一茶，赏一月，摹一字，心神仿佛通透，岁月风霜清澈开来。
+### 
+### #传统文化大讲堂# #国学新青年#  ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx02s7j20bv0910t0.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx1jctj20bm094aba.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx09y7j20br098wes.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx1dqxj20c409d75j.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx1mb8j20bp098q3w.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx1mouj20bu095js3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx6a6uj20bx093q3n.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx6zxnj20bt09kdgo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1g9xbbx7gg4j20bo092q4e.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-18 15:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 若得夕阳无限好，何须惆怅近黄昏。
 ### 
 ### #吾爱诗词# ​
