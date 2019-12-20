@@ -12,6 +12,30 @@
 
 -----------------------------------
 ===========================================
+### #用花果蔬菜命名的色彩有多美# 
+### #传统文化大讲堂# #国学新青年# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdosc4yj20ga1b9n35.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdorywwj20ge1bjagg.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdou5plj20gb1b1448.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdoti8fj20gp1d0q96.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdp2tnvj20gi1c0wk4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdp2yazj20ga1bmq8w.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdor8asj20gi1bxafj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdotnfjj20gb1b50yd.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1g9xbdp2nmgj20gj1h345c.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-20 11:00:04 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 心乎爱矣，遐不谓矣。
 ### 中心藏之，何日忘之。
 ### 
