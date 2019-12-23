@@ -12,6 +12,31 @@
 
 -----------------------------------
 ===========================================
+### 70个中国文化常识，收藏起来！ ​​​​
+### 
+### #传统文化大讲堂# #国学新青年# ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz1vdmtj20dw0lumya.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz3nt8nj20dw0lu75q.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz3lct4j20dw0lu75x.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz4fjuuj20dw0lujsy.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz5hviqj20dw0lumyk.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz6cqvxj20dw0lumys.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz7hoo5j20dw0lu403.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz8b5yaj20dw0j0gmo.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5wz9c85dj20dw0jyq45.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-23 11:00:05 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 玲珑骰子安红豆，入骨相思君知否。 
 ### 
 ### #吾爱诗词# #中华诗词之美# ​​​​
