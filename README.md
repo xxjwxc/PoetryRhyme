@@ -12,6 +12,57 @@
 
 -----------------------------------
 ===========================================
+### 早安！瓷和花，搭配在一起太美了[微风]
+### 
+### 图 | Pieter Wagemans ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3b03dqj20fo0i9gmk.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3d8do5j20fo0hyt9r.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3dge8gj20fn0fq0tg.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3dqxfzj20fo0eq74x.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3dgu7rj20fo0g1gmm.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3dgg3uj20fo0fodgj.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3eszlgj20fo0jggml.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3esybgj20fo0fqwf8.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x3esql9j20fo0fkwf4.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-24 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一自王乔放自由，俗人行处懒回头。
+### 睡轻旋觉松花堕，舞罢闲听涧水流。
+### 羽翼光明欺积雪，风神洒落占高秋。
+### 应嫌白鹭无仙骨，长伴渔翁宿苇洲。
+### 
+### ——唐·郑谷《鹤》 ​​​​
+### #吾爱诗词# #中华诗词之美# ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx5a8zwj20hs0acq3c.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx67wt3j20c20hsdg4.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx71qbcj20d60ga3yp.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx87014j20fq0hsdh2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx8z12wj20sg0hs3zr.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wx9yezmj20dv0hsjrq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wxaxv31j20sg0lamzr.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wxbv5gsj20hs0c13z3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5wxd2lyzj20sg0qswhj.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-23 20:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 70个中国文化常识，收藏起来！ ​​​​
 ### 
 ### #传统文化大讲堂# #国学新青年# ​​​​
