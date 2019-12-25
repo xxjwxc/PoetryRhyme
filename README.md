@@ -12,6 +12,56 @@
 
 -----------------------------------
 ===========================================
+### 不忧不虑，不怨不怒。
+### 不悲不喜，心凉自静。 ​​​​
+### 
+### 早安[微风] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x4fu1urj20j60cj0t1.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-25 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 《这里哪一句诗词最能描述你想要的生活？》
+### 
+### 1.
+### 山中何事？松花酿酒，春水煎茶。——张可久· 《人下面月圆·山中书事》
+### 
+### 2.
+### 春水碧于天，画船听雨眠。——《韦庄· 菩萨蛮·其二》
+### 
+### 3.
+### 掬水月在手，弄花香满衣。——《于良史·春山夜月》
+### 
+### 4.
+### 绿螘新醅酒，红泥小火炉。晚来天欲雪，能饮一杯无。——《白居...全文： http://m.weibo.cn/2607374962/4453130055928981 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1ao0oaj20h70ptwgk.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1azo59j20hs0hsq5m.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1bomwej20dw0k8tc4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1e5mluj20hs0vkadf.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1d734hj20dt0ku0u8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1cg1puj20es0m8jti.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1fy3r3j20e50l4dji.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1fwbjoj20ia0oa0yf.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x1fs6zzj20hs0hstce.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-24 21:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 早安！瓷和花，搭配在一起太美了[微风]
 ### 
 ### 图 | Pieter Wagemans ​​​​
