@@ -12,6 +12,43 @@
 
 -----------------------------------
 ===========================================
+### 风有约，花不误，岁岁如此，永不相负。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/9b696272ly1ga5x8731e0j20j60ckmyd.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-26 08:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 富有哲理又优美的句子，可以做屏保[可爱]
+### 
+### #中华诗词之美# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x6328mkj20go0t6djo.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x634ixzj20go0t6wjn.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x6365fcj20go0t6tdw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x636uasj20go0t679h.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x636cqrj20go0t6tdw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x6379fmj20go0t6tdw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x64ypgaj20go0t6n2d.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x64xrvdj20go0t6tdw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5x64yj2jj20go0t643p.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-25 21:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 不忧不虑，不怨不怒。
 ### 不悲不喜，心凉自静。 ​​​​
 ### 
