@@ -12,6 +12,45 @@
 
 -----------------------------------
 ===========================================
+### 多思不如养志，
+### 多言不如守静，
+### 多才不如蓄德。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272ly1ga5xg6vb6xj20j60at0ux.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-28 11:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 多情都「不题」，读不完的李商隐[微风] 
+### 
+### #中华诗词之美# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5qevlj20ck0fx0ts.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5pw8oj20cp0fudgu.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5q4kij20cq0g1ab5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5q4a1j20cr0fxjsf.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5q5hyj20cq0fvmy1.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5qeydj20cp0fu0ty.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5v62pj20cp0fqabd.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe66znjj20cj0fwjs6.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272ly1ga5xe5vzu9j20co0fxabk.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-27 20:00:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 风有约，花不误，岁岁如此，永不相负。 ​​​​
 ===========================================
 
