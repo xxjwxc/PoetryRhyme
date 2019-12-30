@@ -12,6 +12,26 @@
 
 -----------------------------------
 ===========================================
+### 山山水水，皆是一来一去，人生无常，心安便是归处。 ​ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9tjj6oj20j60irwii.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9tiln3j20j60ee41c.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9tldmrj20j60ch0u4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9tgdy1j20j60csdhb.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9tij8rj20j60afdi7.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/9b696272ly1ga5x9ti2bgj20j60cq76l.jpg" width=33%>
+</p>
+<font color=red size=1>2019-12-30 08:30:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 多思不如养志，
 ### 多言不如守静，
 ### 多才不如蓄德。 ​
