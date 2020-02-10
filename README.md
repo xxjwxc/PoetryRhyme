@@ -12,6 +12,33 @@
 
 -----------------------------------
 ===========================================
+### 今年春节，一大批医护人员、警察、志愿者，“舍小家顾大家”，投身于抗击新型冠状病毒感染肺炎疫情的第一线。疫情当前，他们步伐坚定，只为百姓安康。面对突如其来的疫情，海豚家也同步做出官方决定：
+### 
+### 所有武汉的用户1月份的订单我们全部免费赠送，给予防疫人群最大的信心和支持！
+### 
+### 海豚家，真的用心...全文： http://m.weibo.cn/2607374962/4468677611019015 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn532koj20ku0yigrq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn628f1j21400u0b29.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn57l7jj20ku112tem.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn6emmmj20ku112u0x.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn5q6ysj20ku1121e1.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn6jqz5j20ku1124qp.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn60n9yj20ku0yiaeu.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn67ahdj20ku112ady.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/9b696272gy1gblpn6mu0bj20ku0yin1w.jpg" width=33%>
+</p>
+<font color=red size=1>2020-02-05 18:40:29 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 青梅竹马是你，情窦初开是你
 ### 细水长流是你，柴米油盐是你，白首是你。 
 ### 一屋，两人，三餐，四季，朝阳，晚霞，暮雪，白头，是你。​ ​​​​
