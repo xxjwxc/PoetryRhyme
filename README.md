@@ -12,6 +12,30 @@
 
 -----------------------------------
 ===========================================
+### 看电影学色彩构成[doge]
+### #电影中的绝美画面# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdvf8ajj20u00u0ain.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdw8sxnj20u00u0tgy.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdwqh5dj20u00u0dmj.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdxbfy0j20u00u0thk.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdut3ppj20u00u0jxz.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdxtg8vj20u00u0q9p.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdybi9zj20u00u0q8u.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdyueuej20u00u00xm.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/9b696272gy1gc1rdze4b5j20u00u0q8n.jpg" width=33%>
+</p>
+<font color=red size=1>2020-02-19 15:50:40 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### #90后老师怎么上网课# 
 ### 简直是形象崩塌瞬间哈哈哈哈哈哈哈哈哈哈
 ### #轻松防疫站# ​
