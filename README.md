@@ -12,6 +12,92 @@
 
 -----------------------------------
 ===========================================
+### 【 中国古建小品 · 燕尾脊  】--- “ 燕尾脊是闽南传统建筑中最常使用的建筑形式，它由正脊做成曲线的形状，两端往上翘起，类似上弦月形，而在尾端分叉为二，就像是燕子的尾巴一样，所以称为燕尾脊 ”。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1vedtj30gh0atq3z.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1uwhlj30hs0bv3z8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1x8daj30hs0dcjs1.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1vvp5j30hs0bbaba.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1vgy0j30hs0bv0tn.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs1vcgmj30hs0aa0td.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs20hpwj30go0bu0to.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs20scaj30j60clq3z.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozs213dgj30dk08c0tf.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-11 15:20:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 烟际鸟呼云际雨，花边蝶舞柳边风。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr8zvlgj30j60dgjtk.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr8zoifj30j60dgdhr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr905dhj30j60dadi8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr8zkyjj30j60d8766.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr9014ej30j60dfq4d.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr90idlj30j60d70ul.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr93vuoj30j60dk76b.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr9586zj30j60d7jtr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gcozr94vmdj30j60d8dho.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-11 13:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 西苑烟光倚槛新。桃花艳艳静无尘。照溪红映一天云。 
+### 肯放落红流出水，且寻歌舞赏明春。持杯知是洞中人。
+### ---------《浣溪沙》曹勋
+### #吾爱诗词# #诗词歌赋# #你相册里的春景# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6gn4rj30j60cs758.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6grn1j30j60bg3ze.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6gsc0j30j60cs75e.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6gyguj30j60cs0tn.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6gqzrj30j60cs3ze.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6gmwzj30j60cs74m.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6lrj0j30j60az756.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6nqmyj30j60cswf8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gcozq6nemtj30j60cs0t8.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-11 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### #你相册里的春景# 青鸟不传云外信，丁香空结雨中愁。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojklqjj30j60eemy5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojkx2oj30j60eet9p.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojkbzdj30j60cqwf6.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojkxqmj30j60ee0tm.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojkd3bj30j60eeq3l.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojkhhzj30j60eet9a.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojqa33j30j60eegmi.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojqvg9j30j60eeq3o.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcozojqql3j30j60eegmg.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-11 10:50:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 红运连连 … ​
 ===========================================
 
