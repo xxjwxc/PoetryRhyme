@@ -12,6 +12,32 @@
 
 -----------------------------------
 ===========================================
+### 山泉煎茶有怀
+### 唐代： 白居易
+### 坐酌泠泠水，看煎瑟瑟尘。
+### 无由持一碗，寄与爱茶人。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3oxhej30go0b4gng.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3omw0j30hm0bzgma.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3psmoj30j60hyq4n.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3pkkyj30ia0aadh4.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3oycwj30e609gjs3.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3qzz9j30e609f3ze.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3r974j30cu09dq3j.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3rs8ij30g00ao0tq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gcurz3sdhqj30cy08nwew.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-16 19:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 一人一心一境界，一思一念一尘缘，
 ###  一悲一喜一浮生，  一去一来一轮回 。 ​
 ===========================================
