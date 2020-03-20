@@ -12,6 +12,51 @@
 
 -----------------------------------
 ===========================================
+### “ 学艺之道无它，锻炼意志第一 ”  
+### 
+###                                 --- 徐悲鸿 ​ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfilajzxj30j60vf7be.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfikwprlj30j60ht0wb.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfikvgulj30j60tn76r.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfikyqx3j30j60wmtba.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfikyh4aj30j60eeq83.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfikywrmj30j60jogqt.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfil63hij30j6121gu0.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfil0yc3j30j60tbjwh.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gczfil2hvwj30j60xijtt.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-20 13:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 流水白云长自在，苍苔翠藓漫堆封。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr181gj30j60srgu3.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhrbhsfj30j60srn3n.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhs1ox6j30j60sr11n.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr4k6vj30j60sraiq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhqvafhj30j60csq5q.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr1nrej30j60srgsu.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr0brcj30j60csmzh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr4x4rj30j60csdjh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gczfhr5nbdj30j60cswid.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-20 12:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 不要人夸颜色好，只留清气满乾坤。 ​
 ===========================================
 
