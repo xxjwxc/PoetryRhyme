@@ -12,6 +12,29 @@
 
 -----------------------------------
 ===========================================
+### 不要人夸颜色好，只留清气满乾坤。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxqlilj30j60ct0ub.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxrmhmj30j60ct76o.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxz1h8j30j60ctdhn.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxrdg7j30j60ctgna.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxrukdj30j60ctq4x.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxs8xdj30j60ctzly.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxxm3jj30j60ct75w.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgxz3ccj30j60ctta8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gczfgy0y2lj30j60ctgng.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-20 10:50:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 万事如意 … ​
 ===========================================
 
