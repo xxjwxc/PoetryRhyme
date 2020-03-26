@@ -12,6 +12,224 @@
 
 -----------------------------------
 ===========================================
+### #古籍唤醒计划# ​​​​【从诗词中探寻红楼梦中的人物性格】
+### 白玉堂前春解舞，东风卷得均匀。蜂围蝶阵乱纷纷。几曾随逝水？岂必委芳尘？
+### 万缕千丝终不改，任他随聚随分。韶华休笑本无根。好风凭借力，送我上青云。
+### -------《临江仙·柳絮》薛宝钗
+### 同样是在“柳絮诗会”上，薛宝钗这首《临江仙》表面上...全文： http://m.weibo.cn/5886339293/4486821263714762 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzeibsj30dw0a2aao.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzpa36j30g40ar133.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzeordj30dw0a8mxi.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzep0mj30dw0bs74q.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzho4yj30dv09rdgq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzeafpj30dw0cmdg8.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzejeaj30ci0dw3z7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzgvo1j30dv0a5mxl.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd7ldzh7l7j30dv0b5t94.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 20:16:53 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 醉漾轻舟，信流引到花深处。尘缘相误，无计花间住。烟水茫茫，千里斜阳暮。山无数，乱红如雨，不记来时路。
+### ——秦观《点绛唇》 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c90w00rj30j60j7wg5.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c90wy4rj30j60c641p.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c90wafnj30j60cstb3.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c90xc9uj30j60eewh6.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c91797bj30ix0sgwjp.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c90wd65j30j60csabx.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c910o6jj30j60cb759.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c911u8pj30j60crack.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c914yqzj30j60j60vf.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 19:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 东窗晚无热，北户凉有风。
+### 尽日坐复卧， 不离一室中。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6c9ybzj30j609nq6i.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6c7nv1j306i06w74h.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cdui6j30df0irwkw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cazbzj30dc0k0dhm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cg6n9j30j60db40e.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6ca3xuj30j60nvq4z.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cdlkmj30di0k0juo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cg3i8j30d40bhq4g.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gd6c6cg2c1j30dc0k0jsz.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 16:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 古诗里的 唯美春天  … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wqkblj30c81g2dlm.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wg2h3j30c71g9teg.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wpkvlj30c71ge0yl.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wp7f7j30c71g9grh.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wns1ej30j611wn8y.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2whe5rj30c81nkdm4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wo3rqj30c81b6wjm.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wrdcjj30c71jan31.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6c2wru1tj30c81f5afo.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 15:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### #古籍唤醒计划# ​​​​【从诗词中探寻红楼梦中的人物性格】
+### 粉堕百花洲，香残燕子楼。一团团、逐队成球。飘泊亦如人命薄，空缱绻，说风流。
+### 草木也知愁，韶华竟白头。叹今生、谁舍谁收！嫁与东风春不管，凭尔去，忍淹留！
+### --------《唐多令·柳絮》林黛玉
+### 《红楼梦》第七十回，柳絮诗会，贾府众人以“...全文： http://m.weibo.cn/5886339293/4486733980238208 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjg70oj30et08cglo.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjhv8oj30ci0ajjs6.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjgmg3j30dw0a70t5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjhzc4j30ci08yt94.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjjfjfj30dw0ataav.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjoscrj30dw0aft9c.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjkqw0j30e808cmxr.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjo3o8j30bs08u447.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd7abjkcbpj30dw09rt95.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 14:30:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 报春杜鹃 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c4pjuj30j60jejtq.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c607dj30j60j9ad7.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c62jzj30j60ja0vr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c5t5yj30j60je76x.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c5vi7j30j60jaq5a.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c8y5aj30j60iy41q.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1chk91j30j60jegol.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1c9b3pj30j60jgn0n.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6c1caka6j30j60j3juy.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 13:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 海棠著雨透胭脂 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byj7jokj30j60cldhl.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byj86qbj30j60ctq4p.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byjgln3j30j60cwq5f.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byja1oej30j60cpwgp.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byja01wj30j60csgn6.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byj8c7sj30j60cs769.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byji0hdj30j60ckdi1.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byjgwx0j30j60cjq4z.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6byjit96j30j60e8abu.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 10:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 儿童急走追黄蝶，飞入菜花无处寻。
+### #你相册里的春景# #诗词歌赋# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0prabj30j60cpae7.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv1dvsrj30dc0k0n0m.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0q2csj30dc0k0n07.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0tz4sj30j60csdhv.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0y15mj30j60ctte2.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0qsfgj30j60astd7.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0vt82j30j60csdk2.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0ycwtj30j60sr7eg.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gd6bv0xa8jj30j60cpjts.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 09:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 见紫荆花
+### 唐代： 韦应物
+### 杂英纷已积，含芳独暮春。
+### 还如故园树，忽忆故园人。
+### #诗词歌赋# #国学新青年# #你相册里的春景# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnluvoj30j60gn41h.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnl447j30j60gidid.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnmm8lj30j60o8gpb.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnkxlqj30j60gq40t.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnmq4zj30j60gvn08.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnlrluj30j60cj425.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnoy5lj30j60fataw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnqlrjj30j60fpgoh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gd6btnq8wkj30j60gn41h.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 07:50:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 四顾山光接水光，凭栏十里芰荷香[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr57dtj30j60e9gop.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr42rcj30j60e676s.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr6i7aj30j60e9tc6.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr4nsxj30j60e9tb6.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr4s72j30j60e7tav.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr9ykjj30j60e9di9.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brr48tij30j60e540w.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brrjkf2j30j60e8q52.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gd6brrafg3j30j60ebtb7.jpg" width=33%>
+</p>
+<font color=red size=1>2020-03-26 06:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 春天的海棠 … ​
 ===========================================
 
