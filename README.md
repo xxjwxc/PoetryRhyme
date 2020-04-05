@@ -12,6 +12,30 @@
 
 -----------------------------------
 ===========================================
+### 白云卧山巅，流水洗山川。
+### 客在此居住，清净能坐禅。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxs14wj30j60asdi4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuy2s44j30j60j60yh.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxs09uj30j60cjgnh.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxujvdj30j60cmjv1.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxt1tij30j60ckacl.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxsxahj30j60clach.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxz2vxj30j60d1juk.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxyu1kj30j60csmyl.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gdhwuxz3omj30j60csju8.jpg" width=33%>
+</p>
+<font color=red size=1>2020-04-05 18:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 黄昏独倚，画阑西角 ​
 ===========================================
 
