@@ -12,6 +12,56 @@
 
 -----------------------------------
 ===========================================
+### 五色明珠光照水，湛然清净本来身。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugceq7vj30j609gjsz.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcg3ucj30j60d2q5s.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcka4hj30j60e1juh.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcon5uj30j60ea42d.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcesnlj30j60ct3zd.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugckvtwj30j60cttan.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugchyd0j30j60ct76d.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcn8zyj30j60eewfw.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ge3ugcqbazj30j60ee760.jpg" width=33%>
+</p>
+<font color=red size=1>2020-04-24 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 荷
+### 芙蕖，水灵
+### 欲鲜翠，露尖角
+### 擢荡叶长，住湖人家
+### 头莲五月采，别样不待期
+### 人静看荷赏景，风漪小浪映红
+### 邀绿浩渺吟明月，并蒂荷莲漾拂波 ​ ​​​​
+### #吾爱诗词# #诗词歌赋# #诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7x2zuj30j60oe74q.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7qhhfj30j60spgm7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7pi0zj30j60azjrk.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7p0zpj30j60dbaa2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7psu9j30j60c074e.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7s32mj30j60ck3yq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7t0s0j30j60cmweo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7tpnzj30j60cldg3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ge3uf7uzpsj30j60p6jrq.jpg" width=33%>
+</p>
+<font color=red size=1>2020-04-24 10:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 雨过条风着柳芽，淡黄浅绿嫩如花。 ​
 ===========================================
 
