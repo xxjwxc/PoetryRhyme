@@ -12,6 +12,69 @@
 
 -----------------------------------
 ===========================================
+### 夕阳欲暝归扁舟，梵磬一声荡兰桨。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9ofiodj30j60csmz1.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9ojauhj30j60srn2g.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9og19uj30j60csq4u.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9of5vuj30j60ebwf2.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9oe2whj30ir0xcn4u.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9obb6yj30j60j677a.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9ofu6yj30j60cs757.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9oipasj30j60csab7.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg9ojy35j30j60sr40o.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-18 18:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 烟树绿含滋，水风清有味。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8lxm6bj30j60csjsf.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8lyfg9j30j60csmzj.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8ly22sj30j60csjs9.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8lyhtlj30j60csabg.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8lxzbaj30j60csq3n.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8lxnavj30j60csweo.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8m11tgj30j60csaba.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8m1mbuj30j60cswfi.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gfvg8m1v8dj30j60csdgo.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-18 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 凉日暑不变，空门风自清。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7bk3y0j30j60cs78x.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7cbsklj30j60j6jwc.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7bt7koj30j60cswho.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7bwwh8j30j60j6tej.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7bjvdvj30j60csq5u.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7btuvkj30j60cswir.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7br1cpj30j60ct432.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7bygcpj30j60cs42f.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gfvg7cgk24j30ij0rsk06.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-18 14:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 风静箫声来世外，日长仙境在人间。 ​
 ===========================================
 
