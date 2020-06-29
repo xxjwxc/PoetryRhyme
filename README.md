@@ -12,6 +12,311 @@
 
 -----------------------------------
 ===========================================
+### 长忆高窗夏天里，古松青桧午时风。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmjkknj30j60c1di1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmz6j7j30j60c6ad7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmitlkj30j60c777b.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmib14j30j60c4tbq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmi8ggj30j60cs413.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmht2ej30j60ctmzb.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmnt1wj30j60ct416.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmqck9j30j60cbdij.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg88pmq72xj30j60cetbj.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-29 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 暑在人还倦，竹深风自凉。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nas4zej30j60csq5d.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88narekhj30j60cs405.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nb0k41j30j60csq6l.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nard90j30j60csgna.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nat1ahj30j60cs77p.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nat46cj30j60csgp3.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nawvlxj30j60cs76g.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nayav2j30j60csadq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88nayd1hj30j60csgop.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-29 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 晨起披衣出草堂，轩窗已自喜微凉[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfdjzhj30j60srtdt.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfhdflj30j60srdl8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfca7jj30j60sraed.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfbw7qj30j60srjub.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mf9nurj30j60cs0u6.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfd5krj30j60nz0wx.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfgdshj30j60srwhr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfh4qvj30j60cs0uy.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg88mfhdg1j30j60j641d.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-29 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 未花叶自香，既花香更别。雨过吹细风，独立池上月。[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bjebgj30j60cbt8o.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bf77sj30j609qweu.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bcjujj30j60a0jru.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bl566j30j60epaak.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bcm9dj30j60csgm2.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bdsl0j30j60pkaar.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bi1bej30j60dtaa7.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bj9nlj30gz0jyaax.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg734bizgzj30j60qcdg6.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 22:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 【完整无删减】王阳明全集原著正版无删减 哲学国学经典书籍。
+### 
+### 为何懂得了很多人生道理，却依然过不好自己的人生呢？ 王阳明讲：知易行难，知行合一更难，知是因，行是果，与其在果上努力，不如在因上用功。 http://t.cn/A6Lev2K6 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88f3ao4yj30m80m8gyc.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88f3aez6j30m80m8qdj.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg88f3ak1dj30m80m8n5k.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 19:34:58 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 心入虚无行火候，内景内象壶中天。
+### 须知一尘一蓬莱，与走一叶一偓佺。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72znl9zkj30j60blwg9.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72zni93aj30j608daaz.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72zobi2wj30j60chmyv.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72znk149j30j60by76d.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72znj4ysj30j60clmzf.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72zniue4j30j60bpab8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72znrbtbj30j608ft9t.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72zno0q8j30j6085dgy.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gg72znojpjj30j607zq3t.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 18:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### #遇见艺术# 身安，不如心安。屋宽，不如心宽。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf1f6dj30go0b20td.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf5s06j30j60ssdji.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf2ag8j30e70gnwga.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf26goj30cd0k0gmy.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf7es4j30go0qxq3s.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf1pifj30g00aogmg.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yf7udmj30j60au408.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yfcuncj30fa0ju0vk.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72yfbccfj30j60cu0uf.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 水竹悠然有遐想，会心何必在空山。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjnkioj30j60jx0wq.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjnjkfj30j60c1n24.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vk37ysj30j60c042o.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjnzebj30j60cujwa.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjml00j30j60g8mzx.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjrfm0j30j60f4gr5.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjs1vhj30j60cu445.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjrqiwj30j60es0w3.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gg72vjvk54j30j60cun0w.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 园林消午梦，好风清且微。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7oa94j30j60csae1.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7p7mqj30j60csdl8.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u87db0j30j60srqfh.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7y9pyj30j60cswk5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7x12jj30j60srk3n.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u85qq1j30j60srnde.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7xmjnj30j60srgyw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u7wpsmj30j60csdl5.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg72u84fb1j30j60csgqv.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 彼姝水花红，媚此晴色暮。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7ln9qj30j60jomxl.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7ks7lj30j60biwer.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7kqvdj30j60ctq33.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7n5z5j30j60cqdg2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7ltvcj30j60sqglv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7mbhlj30j60sqdgj.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7ogxsj30j60crt8v.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7pdgpj30j60f5aan.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72t7qlkpj30j60sq3z7.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 识自本心，见自本性。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrkx7zj30gg0paab0.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrn5txj30ca0foq3p.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrjdggj30bu0hsaar.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrkwodj30ga0okwg1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrjnbtj30cy0jg3z7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrmcvpj30bv0hs3zm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrntesj30ia0dqmxt.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrq315j30dy0jg0ua.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72rrqbmzj30dw0kumyb.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 仙客厌人间，孤云比性闲。
+### 话离情未已，烟水万重山。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbrgh7j30j60csq4y.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbrq4zj30j60ew3zt.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbrg8qj30j60cswfl.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbs0ifj30j60cs40b.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbs0ilj30j60csjte.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbre35j30j60akmz1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbv79pj30dy0jggn5.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qbz0gjj30j60ew3zt.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg72qby4obj30j60csq4y.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-28 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 读山，读水，读人；
+### 品茗，品风，品月。 ​​​​
+### [月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcroumlj30hs0qo40b.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrxmnej30hs0qtgnt.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrxzyqj30hs0ufmzo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrodomj30hs0nl75o.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrp9s6j30hs0vldhv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcs2uhhj30hs0qowfk.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrwt07j30hs0nowg1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrwf4aj30hs0qoaba.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xcrxb80j30hs0qoab8.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-27 22:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 身外无羁束，心中少是非。
+### 被花留便住，逢酒醉方归。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdn46bj30j60ckgmi.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdnqmkj30j60cnq3m.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdg4c5j30j60co3yy.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdp5gmj30j60qbq4e.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdovuwj30j60oa0u8.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdggukj30j60cgmy4.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdle6mj30j60cl0ty.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdsgw1j30j60clwfe.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gg5xbdru2tj30j60clmy9.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-27 18:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 江转穿云树，心闲随叶舟。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3b3ntj30j60j2dia.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3bewdj30j60j2dhd.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3rtraj30j60j2gom.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3brjnj30j50j9dhq.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa44o9aj30j50j70ut.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3rvflj30j50j10ur.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3irwdj30j60j7n02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3vav4j30j60j5q52.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gg5xa3serhj30j40j1gob.jpg" width=33%>
+</p>
+<font color=red size=1>2020-06-27 16:21:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 米芾 · 书法《离骚》… ​
 ===========================================
 
