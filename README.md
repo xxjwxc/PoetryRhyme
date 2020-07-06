@@ -12,6 +12,69 @@
 
 -----------------------------------
 ===========================================
+### #遇见艺术# 中国汉字源远流长，博大精深，其中不乏许多相似的双胞胎汉字 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtd2v8oj30j60pijxl.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtazzf7j30j60mpte3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtb7g7uj30j60msjwt.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtbuqoxj30j60mv79m.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbta2q3oj30j60mrjwv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtd2ghgj30j60nhq8n.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtbhsl5j30j60mp0y6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbtctcslj30j60mp43u.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbte2qrlj30j60msdli.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-06 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 午后微凉，一帘幽梦，清迥无拘管。起来闲步。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs4p4zlj30j60sr7bi.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs0j9vvj30j60csjts.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs50emkj30j60sedlx.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs0wcbsj30j60ciwh5.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs0xikwj30j60csgok.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs1lb4aj30j60c3t9v.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs202yuj30j60cs77k.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs22eryj30j60bh40o.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gggbs2erhej30j60d8q4p.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-06 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 雨微荷气凉，轻风渡水香。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqy6r2jj30j60dcabh.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqy7pt4j30j60c240t.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqxt0drj30j60asab6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqyrmexj30j60cn76m.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqybw2qj30j60csabf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqxfnafj30j6090abo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqy6m10j30j60bbtaj.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbqzwpemj30j60ovdiv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gggbr0yw95j30j60ctwhs.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-06 10:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 花间词派之祖 · 温庭筠  … ​
 ===========================================
 
