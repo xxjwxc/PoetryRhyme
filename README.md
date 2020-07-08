@@ -12,6 +12,134 @@
 
 -----------------------------------
 ===========================================
+### 我欲穿花寻路，直入白云深处，浩气展虹霓。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimj70e7hj30j610ltn2.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimj1c9ofj30j60d60wa.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimj9henrj30j617q13q.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimjbhuhjj30j6160gzr.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimj4mjqqj30j6103qen.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimjj1aqxj30j60v5k4x.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimj7psbzj30j60fqdig.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimjecmkgj30j60codkx.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggimlhhzffj30j61jvhah.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 蔷薇过午红香褪，绿蜡垂阴夏梦长。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhc273lj30j60csmy2.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhbybllj30j60ksq51.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhe2tl8j30j60c2djh.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhgd19ej30j60dqwhu.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhgrsu8j30j60f1n13.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhc782ij30dm0i5gnr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhe45y9j30j60eltcm.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhgmalaj30j60cs0xu.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimhjk6b2j30j60c842a.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 闭院开轩笑语阑，江山并入一壶宽。
+### 微风但觉杉香满， 烈日方知竹气寒。
+### 披卷最宜生白室，吟诗好就步虚坛。 
+### 愿君此地攻文字，如炼仙家九转丹。
+### --------- 吕温
+### #遇见艺术# #吾爱诗词# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimewps5pj30j60hp134.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimfamb4bj30j612me2b.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimet1x9rj30j60j1jw7.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimetr4r4j30j60hrgx1.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimf2vspaj30j60sq7l2.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimf5f0erj30j60sdne0.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimf3kfb9j30j60zntrl.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimew1l2yj30j609ltel.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggimf12tgej30j609s0ym.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 小窗闲处，提壶试新茶。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimas7c1pj30go0b4wfx.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimasirntj30fo0kwaci.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimarpkwvj30j60hl776.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimarerr0j30j60csq4f.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimarfz0dj30j60fo763.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimatxejkj30j60oy0vs.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimatdhoaj30j60csmz4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimatxrqjj30j60sqadd.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggimc3aypaj30j60csdh1.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 山深茅舍静，春暮雨声寒。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9djx8qj30j60ee762.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9hp49cj30j60eewga.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9fvn4oj30j60cpacc.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9dpl8mj30j60cqjtg.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9df78bj30j60cpwge.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9cbxvxj30j60eetac.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9denp2j30j60eejtd.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9etis0j30j60cqdi9.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggim9e4va4j30j60cpwg3.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一蓑烟雨任平生[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim74oxhbj30j60csdgm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim71xd5nj30j60csgls.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim724p83j30j60cswex.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim72kj0oj30j60cp3yo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim7259mnj30j60ctgls.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim71resej30dc0hsjro.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim72b5nzj30ia0bgjrm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim72pkstj30j00djglr.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggim72ym6ij30j60c3aaj.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-08 06:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 午醉醒来晚，无人梦自惊。
 ### 夕阳如有意，长傍小窗明。 ​
 ===========================================
