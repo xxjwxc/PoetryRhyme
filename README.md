@@ -12,6 +12,192 @@
 
 -----------------------------------
 ===========================================
+### 满园积翠，一榻新凉。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0b3pphj30j60cs3zv.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0bh5i3j30j60cswja.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0cbh8ej30j60csaee.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0c2n49j30j60csn0c.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0aanhfj30j60csdgw.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0c0q1lj30j60cs41t.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0la5tvj30j60csabz.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0bzsaaj30j60cswh7.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1ggky0db1rfj30j60cs78h.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-10 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 万物静观皆自得，四时佳兴与人同。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxytj5ffj30j60bttbp.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxytjye7j30j60c341r.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxytjgaaj30j60c4wha.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxytt3v4j30j60c877f.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxyzoiohj30j10riahs.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxyw04ovj30j60dvadm.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxyu5ivaj30go0bvmyy.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxyu89wqj30j60dqdjb.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxywg7atj30bi09eab3.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-10 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 江浮清镜中，山入翠屏里。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxkn4joj30j60sq495.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxixjk4j30j60p9n20.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxk4tcxj30j60ctadt.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxi7p4wj30j60c3q5h.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxg2zjfj30j60b2goj.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxmw653j30j60ctq6e.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxi844nj30j60cqjva.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxjmi2hj30j60bbn0j.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggkxxjz62vj30j60ctq5f.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-10 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 眼内有尘三界窄，心头无事一床宽[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv6pdhuj30j60bf0v0.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv6qh1ej30j60ds0va.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv72jssj30j60cy423.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv8sdwrj30j60fr437.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv7bl83j30j60cq40r.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv6k712j30j60csjts.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv87a8gj30j60d5gog.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxv7koe3j30j60b0jt8.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggkxw4mqk7j30il0rs0xk.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-10 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 夜宿深山中[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcmozvqj30j60c7di3.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcmyzejj30j60cqq4e.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcokyc9j30j60c5jto.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcnvokyj30j60c7tag.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcown9zj30j60csgno.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcnbz3wj30j60crgmr.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcqwtpzj30j60c5wgm.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcos875j30cl0cewga.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ggjrcpp5mxj30j60c90ty.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-09 22:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 旺家灯火 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9u3fqvj30j60crtbh.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9s8hgvj30j60crdhw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9t366yj30j60cr0vo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9tsw5sj30j60cracj.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9vbkbqj30j60crwhf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9w3oo5j30j60crwia.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9vlej6j30j60cradz.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9xnuw8j30j60stjwv.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ggjr9x4pk4j30j60crwhy.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-09 18:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 黄昏未忍轻归去，长笛一声何处船。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8njvlrj30j60b8adc.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8j9b1oj30j60cj40c.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8jzhikj30j60cn771.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8o093sj30j60dxabq.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8l422hj30j60b341g.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8k41rsj30j60cs3zy.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8nq4qbj30j60cs40w.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8nq0n4j30j60clwhw.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr8mkfztj30j60ee3zv.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-09 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 午窗夏日影悠悠，一觉清眠万事休。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6duz4pj30j60srdmd.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6hj8n0j30j60asmz4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6gd26mj30ir0xcgqp.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6cfw2jj30j60cswge.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6gdx78j30j60cs75r.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6jcj3aj30j60sr7de.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6eg76vj30j60srn0z.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr6gzjfgj30j60cswid.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr7fx7v4j30j60csgpi.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-09 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 善琴者通达从容，善棋者筹谋睿智
+### 善书者至情至性，善画者至善至美
+### 善诗者韵至心声，善酒者情逢知己
+### 善茶者陶冶情操，善花者品性怡然 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr54scwyj30j60j6wfi.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr53dwvlj30j60csdgt.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr54758ij30j60bgq3h.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr548gw3j30hs0btabq.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr53lihxj30hl0bkdgj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr53tbrhj30j60pk3zn.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr53zp34j30j60aadgr.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr58c5ebj30j60camxp.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ggjr57dkugj30j60si402.jpg" width=33%>
+</p>
+<font color=red size=1>2020-07-09 12:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 我欲穿花寻路，直入白云深处，浩气展虹霓。 ​
 ===========================================
 
