@@ -12,6 +12,49 @@
 
 -----------------------------------
 ===========================================
+### 王国维《人间词话》里的经典语录。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x2p3jj30c80ff0ts.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x2jprj30c60flq3v.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x2oxaj30970h4gmf.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x2stjj30930gw3za.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x2pzdj30c60ea0tj.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x3tr7j30c50dw0ti.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x6ys7j30c70eiq3q.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x812jj30c60exmxy.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1ghez4x9m1sj30c60dut9j.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-05 18:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 疏影横斜水清浅，暗香浮动月黄昏。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez383llfj30ic0eot8z.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez38af4ij30ic0eoq3b.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez383z9aj30ic0mxq3e.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez384zorj30ic0mxmxl.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez3848otj30ic0mxmxt.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez383udqj30ic0eo74h.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez38aec9j30ic0mxq6g.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez38cv01j30ic0mx0t2.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghez38au4kj30ic0mxwg2.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-05 16:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 行到深山最寒处，两株香雪照冰滩。 ​
 ===========================================
 
