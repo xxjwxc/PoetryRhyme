@@ -12,6 +12,69 @@
 
 -----------------------------------
 ===========================================
+### 江转穿云树，心闲随叶舟。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4ute10pj30j60j20wu.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utd5qlj30j60j2q5r.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utflqoj30j60j2q8c.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utdxsej30j50j9juq.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4uti05qj30j40j178v.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4uteey6j30j60j5429.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utj54aj30j60j7dko.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utjd6zj30j50j1gp8.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1ghg4utmcfhj30j50j7wi7.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-06 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 晨光运起 [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbfii2j30j60c8myu.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbfa57j30j60cj41t.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbdwn6j30j60cygnf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbevpuj30j60hywgk.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbehgrj30j60dj763.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbj9vbj30j60ptte1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbj94mj30j60iu42f.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbk794j30j60cy416.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghg4tbjlzwj30j60cstbp.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-06 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 野烟含夕渚，山月照秋林。[月亮]晚安[月亮] ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6ccubbj30j60c7jrp.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6cdbivj30j60cqjs0.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6ccy6fj30j60csglw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6cd0ydj30j60c8t8w.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6cfttyj30j60c13z3.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6cdhi2j30j60cmmxq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6ch2cqj30j60cm0t2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6ch7f0j30j60c80sy.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1ghez6chwddj30j60cgdg4.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-05 22:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 王国维《人间词话》里的经典语录。 ​​​​
 ===========================================
 
