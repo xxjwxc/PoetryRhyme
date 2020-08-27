@@ -12,6 +12,184 @@
 
 -----------------------------------
 ===========================================
+### 公众号最新动态：1、古代文人笔下那些半句封神的句子 2、适合发朋友圈的句子
+### 关注V X公众号：“最美诗画“(shihua751 )每天都有精彩内容邀你欣赏！ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi5mke7xetj30u00nljy0.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi5mkedpruj30u014n7hx.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 20:07:17 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 只有一枝梧桐，不知多少秋声。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2rv47j30d20i4430.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2qqtjj30d20ibtbb.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2rt5lj30d20hk77p.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2s29oj30d20hrjud.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2robbj30d20hkwil.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2rm6kj30j60dejuv.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2woskj30d20idjw4.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2x2crj30cd0hw413.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ek2x8hcj30j60cpdlq.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 18:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 白云生处有人家 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitec4jj30j60c6gmz.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitgcz9j30j60az0vb.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitg0l3j30j608b0v9.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitg5pnj30j609y40r.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitelnej30j60a6tao.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eiterypj30j606w3zt.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitir30j30j609b419.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitj2nwj30j609kwgt.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eitl6u7j30j60cxju3.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “ 流水江南，烟笼人家… ”丨陈逸飞 · 油画欣赏 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehoxmjuj30j60fijsz.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehoxc5jj30j60di40h.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehp1b44j30j60ijag8.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehoyiauj30j60drgpq.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehpjfqxj30j60dl78c.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehoxpijj30j60grwfr.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehpctlkj30j60nptfi.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehp35q7j30j60dugqu.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ehp3xnfj30j60dkgpu.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 卧听秋声满檐溜，不知墙下有梧桐。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4egha0hgj30j60bwt9h.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4egha58pj30b409ijry.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghaogvj30j60cq0u8.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4egha0s9j30bi07cjrx.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghaz5aj30j60csq4u.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghciemj30j60csgmd.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghd4sej30j60bn3zg.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghfrkuj30j50bldie.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gi4eghes46j30j60cj3zr.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 心安身自安，身安室自宽。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0g6zbj30j60j6q7q.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0iw3gj30j60j6jws.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0h1rij30j60j6n23.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0gsb4j30j60j6afg.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0fcvsj30j60cq0we.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0hufbj30j60j6dmf.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0np3bj30j60j6q99.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0nc1qj30j60j644c.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gi4ef0n6jaj30j60j6tem.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 岁月无声 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq4wgmj30j60gsgor.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq4r51j30j60e90wb.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq33ccj30j60cwaco.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq5bdfj30j60svwid.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq40psj30j60asju0.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq601tj30j60iv78u.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq8a7xj30j60eegqs.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edqf089j30j60lmako.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gi4edq88xuj30j60csdi1.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 山僧不解数甲子，一叶落知天下秋[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecdgdgej30j60srh1b.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecd7gcdj30j60csn3v.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecd52zuj30j60bwafm.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecd221yj30ho0bamy6.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecd91wvj30j60csqaf.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecd8skqj30j60cs0z7.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecdbszzj30j60srto2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi4ecddqkhj30j60fbn06.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-27 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 琵琶起舞换新声，总是关山旧别情。
+### 撩乱边愁听不尽，高高秋月照长城。
+### [月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnofoaj30j60cswfo.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cno3kmj30j60csdgw.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cno8a0j30j60csjse.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnprvdj30j60csq4f.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnooz0j30j60csaam.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnp0i2j30j60cs0u1.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnuin1j30j60csjsr.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnvkwyj30j60cswf2.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gi37cnwiiaj30j60csjsm.jpg" width=33%>
+</p>
+<font color=red size=1>2020-08-26 22:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 修行不在清净田，真修就在红尘练。 ​
 ===========================================
 
