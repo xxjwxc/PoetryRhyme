@@ -12,6 +12,110 @@
 
 -----------------------------------
 ===========================================
+### 一朝起，一朝落，一朝挥墨一朝过错。一念佛，一念魔，一念心痛一念折磨。一颗心，一盏灯，一念清净一念解脱。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigt5rvj60j60cqjrs02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigsyvrj60j60b5q3502.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigtct9j60j60crgmi02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmiguoc2j60j60dlgna02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigv18lj60j60cs41n02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigtzwoj60j60cs0ud02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigy0z3j60j60de41902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmigxjdqj60j60c3q3d02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmih02gij60j60ex0ub02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 古时对美丽女子的称谓~ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7nucij60j60qjmza02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7o080j60j60qjjti02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7o5h4j60j60qj76a02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7ohhgj60j60qj0up02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7oublj60j60qjjtv02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7oczgj60j60qjmz702.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7ui2zj60j60qjdhx02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7vokmj60j60qjdhq02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gikmh7wf4xj60j60qj76e02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 几见金波满还破，草虫声畔露沾衣。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh4hegj60j60d7jsp02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh6tnyj60j60qyq6802.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh5cegj60j60c6die02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh5afoj60j60c340h02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh5x2ej60j60c4jtv02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh6rv3j60j60i4n0402.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh9lu4j60j60rdgpf02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh8qnyj60j60c60ty02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmeh986mj60j60c5gni02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 晨兴出村西，漫步田间道。
+### 远空浮水气，清露沾秋草。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxn8nlj60j60csmz202.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxnantj60j60cstai02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxmzkyj60j60csgmk02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxnh3gj60j60csmyn02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxnm9hj60j60csgns02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxo0uaj60j60cs76a02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxrkuqj60j60csac002.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxue1gj60j60csq5b02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gikmcxtpdsj60j60cs0ur02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 金罩灯，转红运[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwvhhuj60j60cojtb02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwvbwtj60j60cyq4h02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwwyg3j60j60een0802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwvci1j60j60dqmyq02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwwcwuj60j60cn75x02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwxkgdj60j60cmmyr02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwz5roj60j60jfac202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbx0sbqj60j60cmju502.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmbwzm40j60j60eeq5e02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 06:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 家山一夜梦，便是昔年游[月亮]晚安[月亮] ​
 ===========================================
 
