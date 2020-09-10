@@ -12,6 +12,29 @@
 
 -----------------------------------
 ===========================================
+### 草木生辉，斜斜光影。花开花谢，和风轻抚。篱笆花红，柔漫馨语。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjjycz6j60j60i376n02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjjyjvoj60j60i6gnh02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk092tj60j60j6n1302.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjjyt3pj60j60idgnt02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk03gnj60j60il78602.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk1swlj60j60ia41i02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk497fj60j60iddjm02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk52jmj60j60idjtq02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gikmjk5oaej60j60j641y02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-10 16:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 一朝起，一朝落，一朝挥墨一朝过错。一念佛，一念魔，一念心痛一念折磨。一颗心，一盏灯，一念清净一念解脱。 ​​​​
 ===========================================
 
