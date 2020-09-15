@@ -12,6 +12,177 @@
 
 -----------------------------------
 ===========================================
+### 传统礼貌用语 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cepedej60c80b4t9j02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cepfmmj60c80b80tf02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cepi4yj60c80ba74z02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cephw6j60c80b9t9e02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9ceq8lij60dw099jsj02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9ceq4vhj60c80ba0te02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cet25vj60c80b4gma02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cetcmtj60c80b474y02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9cetcd6j60c80b6q3m02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 悠然青莲界，此地尘境绝。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc5mulj60j60d1abs02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc7su3j60j60cqmyp02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc5mamj60j60cr3zg02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc60ibj60j60cwq4602.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc6frzj60j60bvjsn02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bc5yg8j60j60cmgmo02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bce0yqj60j60ctt9q02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bcb69aj60j60cvjsn02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1giq9bcb1mhj60j60cqjsl02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 野菜山菇，别有风光 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acdzxsj60j60cf0v902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acekecj60j60eeac202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acdewrj60j60cgq4g02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acdbadj60j60dhgnl02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acfjxrj60j60sxwht02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acdyd4j60j60coq5402.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9achaw1j60j60co3zi02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9aclnw7j60j60f3gmz02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq9acjf35j60j60dognf02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 12:20:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 秋雨，秋雨，一半西风吹去。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99cx103j60j60cm41602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99cxvhpj60j60cogo402.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99cxdf4j60j60cj0uq02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99cx96rj60j60cjdhu02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99cybvhj60j60e141z02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99czvu2j60j60cn0ul02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99d11v2j60j60cnq5n02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99d1z9xj60j60ol41j02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq99d27nmj60j60cjmzs02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 停车坐爱枫林晚，霜叶红于二月花。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cqn1oj60j60ctgns02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cqh6qj60j60cpq4h02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cqyx3j60j60csju402.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98csll0j60j60ci40i02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cr6xpj60j60bs0u202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98crjvoj60j60cnq5302.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cv68oj60j60cl75x02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cw4a4j60j60j6ta802.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1giq98cvzl9j60j60bf0uc02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 梦寻何处去，秋色水边山[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zbrqcj60j60csgnl02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zdixwj60j60csgnl02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zbb9nj60j60cqq4t02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zbminj60j60csdhe02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zbneij60j60cytak02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zbxylj60j60cs0v802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zer0wj60j60csgnk02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zewylj60j60csaby02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giq96zf9taj60j60cs0ui02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-15 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 公众号最新动态：1、 盘点那些极具少年感的诗词句子  2、 李白自述：狂傲，是天才的特权
+### 关注V X公众号：“最美诗画“(shihua751 )每天都有精彩内容邀你欣赏！ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giqjqgn51aj60u00po4av02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1giqjqgfysoj60u01hcwid02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-14 22:26:09 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 秋鹤一双船一只，夜深相伴月明中[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pyxbm4j60dv0kfwfr02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pyz2p4j60j60cudj602.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pyxa1cj60j60cswg002.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pywmg4j60j60cuq3902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pyx2wqj60g80agjru02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pyzbjtj60j60csta202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pz24p1j60j60cd75n02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pz3is8j60dm0kf41602.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gip7pz428aj60ee0b674t02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-14 22:20:04 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 《苏轼词传》四海一生踏歌行，中国古典诗词校注，唐宋八大家苏东坡居士诗词集 http://t.cn/A64lTvKQ ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1giqfmbktwgj60m80m8tgn02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1giqfmbjbvdj60m80m846n02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1giqfmbjb81j60m80m8qbm02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-09-14 20:04:52 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 秋天是条让人不想走完的路 … ​
 ===========================================
 
