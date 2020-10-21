@@ -12,6 +12,171 @@
 
 -----------------------------------
 ===========================================
+### 风萧萧。雨骚骚。风雨萧骚梧叶飘。潇湘江畔楼。 
+### 云迢迢。水遥遥。云水迢遥天尽头。相思心上秋。
+### ----《长相思》陈允平 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0sm7vmjj60hs0bvt9k02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0sm8iikj60g20bv40c02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smc3x0j60hs0ch79l02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0sm7y9vj60b40go75802.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smaguhj60hs0bvgn702.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smablhj60b40got9n02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smdx9dj60hs0bv76j02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smefj7j60hs0bvmzz02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0smebbxj60b40c3jsm02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 那些悲伤又有些绝望的古诗词，哪一首戳到你？ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmbyvjj607g0bamxe02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmaghej607g0baglt02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmaowej607g0ba0sy02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qma7o4j607g0baglt02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmaqt9j607g0baq3502.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmane9j607g0ba0sz02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmffymj607g0ba0sy02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmg18ej607g0bamxd02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gjw0qmiq7zj607g0baq3402.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 玉阑干外清江浦，渺渺天涯雨。好风如扇雨如帘，时见岸花汀草、涨痕添。
+### 青林枕上关山路，卧想乘鸾处。碧芜千里思悠悠，惟有霎时凉梦、到南州。
+### -------------《虞美人》李廌 ​​​​
+### #遇见艺术# #诗词# #诗词歌赋# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjbibxj60hs0bvaav02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pja2q3j60b408c3yp02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjb9d4j60j60cpgnw02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjc0osj60j60iijtz02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjbt6lj60fo0nhgnr02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjdgb7j60j60cowfl02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjetluj60dw09a0tg02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjgiwlj60go0b2tav02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gjw0pjjguyj60b40gogmu02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 暗淡轻黄体性柔，情疏迹远只香留。何须浅碧深红色，自是花中第一流。
+### 梅定妒，菊应羞，画阑开处冠中秋。骚人可煞无情思，何事当年不见收。
+### ----------《鹧鸪天·桂花》李清照 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrdpzaj60j60ee75s02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrfmvqj60j60dtdgb02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrdffzj60j60ec3z902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrecl7j60gw0k0q4402.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrcq8tj60j60cs0tj02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrdldaj60j60csabd02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrifioj60i70m8gmk02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrim6sj60dc0k0t9j02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0nrl4ldj60f80k0dgq02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 理想生活都在诗词中了 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3hed4j60hz0no0tl02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3hjfaj60hz0nomy202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3myjhj60hz0nojs902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3i9jkj60hz0nogmj02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3l4h2j60hz0no75802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3i1uuj60hz0no75802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0m3num1j60hz0nomy102.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0mmfoozj60hz0noq3t02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjw0mmg1cdj60hz0noaaz02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一花一叶，静语禅言[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuj6wxj60dw0gq3zb02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuj0ctj60dw0gcwf002.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuj5tfj60dw0fmq3j02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kujfr8j60dw0jgq3r02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuls04j60dw0hcq3c02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kujgfzj60dw0cudg602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kunw9sj60dw0gomxn02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuqd53j60du0ge0tf02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gjw0kuq5w0j60du0ic74u02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-21 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 此君故人好，入夜听秋声[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahclxwj60j60ctgnz02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahd3qbj60j60e6dic02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahd0r4j60j60co0v602.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahc9glj60j60csjsu02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahghrpj60j60srwjv02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahbxlmj609z09u3z202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahi387j60a20a4ab202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahi4o1j60a00a0gm902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjuuahi1e5j60j60csdh802.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-20 22:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 公众号最新动态：1、盘点那些意境幽远的诗句
+### 关注V X公众号：“最美诗画“(shihua751 )每天都有精彩内容邀你欣赏！ ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjvznbw2s8j60tk0nldpo02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjvznbr7v0j60u01hcn0s02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gjvznbrhr0j60u01hcdk002.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-20 18:46:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 无树不秋色，有时闻鸟声。
 ### 村深山路迮，人在涧边行。 ​
 ===========================================
