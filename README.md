@@ -12,6 +12,69 @@
 
 -----------------------------------
 ===========================================
+### 一榻卧山中，静听秋雨响 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvko8xlj60j60cs78k02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvkov4ej60j60csn2402.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvkoq6wj60j60d8gqn02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvknuboj60j60cs41602.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvkpfw1j60j60bqjus02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvko44ij60j60c6ad202.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvkroxqj60j60csq7h02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvkse2dj60j60csgpp02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gk6fvktc9mj60j60csdje02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-30 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 四顾无人声，风蝉树间响 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujbci9j60j60iwn1602.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujaublj60j60iwact02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fuj9zruj60j60iw76g02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujc79lj60j60j6dkg02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujac2hj60j60iwq4v02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujbzjbj60j60j6wiw02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujfl7cj60j60iw7ah02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujf4auj60j60j6jv802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gk6fujgj2wj60j60iwn3m02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-30 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 无事时心能静，有事时心能定 。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgda25j60dw099q3g02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftggrqlj60go0b30uq02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgdu6zj60j60co3z802.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgfmkbj60hs0pltb902.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgff9rj60go0b340z02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgeok9j60j60b7ta702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgivbhj60ha0pz76b02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgjma5j60d10jgmyo02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gk6ftgsfmsj60j60cmgnu02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-10-30 12:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 古寺翠烟深，日入空山静 ​
 ===========================================
 
