@@ -12,6 +12,88 @@
 
 -----------------------------------
 ===========================================
+### 《人间草木》：老文青的吃喝玩乐指南
+### 文学圈里的清流一抓一大把，可是文学界里的泥石流汪曾祺当第二，就没有人敢当第一。汪老在《人间草木》里有一段话：栀子花粗粗大大，又香得弹都弹不开，于是为文雅人不取，以为品格不高。栀子花说去你的，我就是要这样香，香得痛痛快快，你们管得着吗？
+### 
+### 西方人把...全文： http://m.weibo.cn/5886339293/4569417604670852 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj3eb7e0zj60m80m8gsz02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj3eb7k8zj60m80m8tgz02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj3eb7o4nj60m80m8gsi02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-09 18:25:15 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 红尘不到处，清秋长在目。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlygj8j60j60srwli02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlvs3ej60j60ergok02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlwa3nj60j60fctcb02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlvuuuj60j60csae402.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlxv8gj60j60otwit02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvlw3bsj60j60gtdi702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvm23yjj60j60efn0i02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvm26i6j60j60endi302.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxvm3kxpj60j60k3whs02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-09 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 且寄身为庵屋，就里养出神仙。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulk0tzj60j60sr43s02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulh0t5j60j60bt76j02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulhpjxj60j60asq5l02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxuli0l7j60j60n0tae02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulmfj3j60j60sr7aj02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulhyqvj60j60c7dh802.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulnaz2j60j60pxn2v02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulmj8vj60j60ctmyv02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxulmxopj60j60az75f02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-09 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一条青石铺路
+### 足踏一曲历史回音
+### 眼观一部生辉史料 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfkqzxj60j60sqwpb02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfe4xnj60j60csdig02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtffsrjj60j60sqtc202.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfsl3uj60j60nz42402.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfe2uzj60j60asabh02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfgsf3j60j60srgpt02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfj8nvj60j60csgm702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfki1zj60j60j6whv02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkhxtfodbgj60ir0xcagk02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-09 12:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 宿雨郊原润，晨风草木凉。
 ### 村醪饶客醉，山鸟笑人忙。 ​
 ===========================================
