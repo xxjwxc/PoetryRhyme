@@ -12,6 +12,168 @@
 
 -----------------------------------
 ===========================================
+### 公众号最新动态：1、 盘点那些气吞山河，让人血脉喷张的诗词   2、盘点最触动心灵的三十句古诗词
+### 关注V X公众号：“最美诗画“(shihua751 )每天都有精彩内容邀你欣赏！ ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkkc58278pj60tk0q2agm02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkkc57w3a6j60u01hcmzw02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkkc57zs5sj60td0no7e902.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkkc6w1gklj60b40dejtu02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 20:11:35 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 吟看飞鸟没，坐到夕阳时。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e60u8j60j60tbgoa02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e2eb3j60j60cltaa02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e21bfj60j60clab102.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e2vx4j60j60cmta902.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e4jvqj60j60cfq4602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e33cdj60j60ch40802.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e6k8cj60j60cedh602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e61h0j60j60cjgmu02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj44e78rbj60j60dhab702.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 闭院开轩笑语阑，江山并入一壶宽。
+### 微风但觉杉香满，烈日方知竹气寒。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43bzp5aj60j60sq7l202.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43c082bj60j60sdne002.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43c398lj60j60zntrl02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43bprj2j60j609s0ym02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43bpam2j60j609ltel02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43c177xj60j60hp13402.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43byojvj60j612me2b02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43byqwfj60j60j1jw702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj43c5974j60j60hrgx102.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 本来清净所，竹树引幽阴。
+### 檐外含山翠，人间出世心。
+### #这就是中国风# #一场不可能的相遇# ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s5otgj60j60su42i02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s630uj60j60sudjw02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s4ne9j60j60sr40j02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s56g3j60j60su41a02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s53hvj60j60crjvb02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41s9c0sj60j60t9q8702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41sgxqrj60j60rzq9k02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41sa3apj60j60suwjj02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkj41sa61lj60j60su0wm02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 有趣的 回环诗 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p6ndij60c80fadgm02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p5bsaj60c80f4ab402.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p5ph8j60c80fcmy202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p5tzzj60c80f7q4202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p53n3j60c80f6wey02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p6adfj60c80fat9a02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40p90rqj60c80f2jrx02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40palhsj60c80f2js202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj40pbu5lj60c80f7t9a02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 10:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 不觉秋归与冬到，但知无事日偏长。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhl0mrj60j60svafv02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhl92uj60j60svgrs02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhl05bj60j60svgr802.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhimjoj60j60cq76y02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhh2bqj60j60cq40c02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhm7m4j60j60sv7b602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhoeybj60j60cqq5p02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhowzhj60j60cqwhd02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3zhqd7oj60j60svdl502.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 08:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 行至云深处，坐看日出时[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye446uj60j60cs3yq02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye4do6j60j60cs3yq02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye4o70j60j60cs0ta02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye3txfj60bg07kgli02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye4flyj60j60by0sv02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye4ltbj60ij0dtdfx02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye6vnuj60go0avmx602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye7me7j60b408c74502.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkj3ye7yxcj60j60cs3z002.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 06:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 落叶下空阶，秋声无觅处[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy70ywyj60j60asq7c02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy6zfbij60j60cs77802.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy73hcoj60j60bttd902.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy71h4rj60j60csdk102.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy70wwfj60j60at42t02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy6zuqmj60j60cs0vk02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy75ojpj60j60as78s02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy77s6gj60j60as42o02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkhxy79hw7j60j60b5tdl02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-09 22:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 《人间草木》：老文青的吃喝玩乐指南
 ### 文学圈里的清流一抓一大把，可是文学界里的泥石流汪曾祺当第二，就没有人敢当第一。汪老在《人间草木》里有一段话：栀子花粗粗大大，又香得弹都弹不开，于是为文雅人不取，以为品格不高。栀子花说去你的，我就是要这样香，香得痛痛快快，你们管得着吗？
 ### 
