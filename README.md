@@ -12,6 +12,31 @@
 
 -----------------------------------
 ===========================================
+### 阅尽天涯离别苦，不道归来，零落花如许。花底相看无一语，绿窗春与天俱莫。
+### 待把相思灯下诉，一缕新欢，旧恨千千缕。最是人间留不住，朱颜辞镜花辞树。
+### ----------《蝶恋花》王国维 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmipsnj60j60csacd02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmkpndj60j60cs41802.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmiqf9j60j60csjsz02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmj1v5j60j60bzwgm02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmk7i8j60j60csacr02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmjuqjj60j60cs0va02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmlq4nj60j60cs40902.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmmspxj60j60cs76102.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gkk3pmnajdj60j60csmyw02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 16:21:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 你听过哪些古人最有气势的诗词是什么？ ​​​ ​​​​
 ===========================================
 
