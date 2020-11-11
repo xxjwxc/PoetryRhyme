@@ -12,6 +12,129 @@
 
 -----------------------------------
 ===========================================
+### 你听过哪些古人最有气势的诗词是什么？ ​​​ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3ol6ruyj60go11imzj02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3ol5kcqj60go11itb102.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3ol6oy4j60go11idi302.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3ol5v8hj60go11ijt802.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3ol60sdj60go11i40o02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3olci1ij60go0yqtaf02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3oldb9uj60go0yqjt602.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3oldbmjj60go0zajt902.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gkk3olgwv0j60go10ognn02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 14:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 年事梦中休，花空烟水流。 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndj06ej60ia0dpwfi02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndjmb0j60c80ibacc02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndjxqtj60dw0kun0502.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndirh1j60hi08daag02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndjrmpj60hm0asdgy02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndj4jkj60gb0axwf402.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndl8dnj60c8076glr02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndmxlfj60c807jdg102.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3ndn6rbj60dm090dg202.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 12:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 但有盘中物，从他万事休。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxr6s5j60j60d8tbf02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxt5vvj60j60f2jux02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxqf2nj60j60csdhd02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxt84aj60j60eewhn02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxqpq7j60j60d5mys02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxu822j60j60j6gpy02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxw9wwj60j60ctaco02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxwuk2j60j60ee42502.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3lxz2ffj60j60srjyg02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 10:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 且将诗酒瞒人眼，出入红尘过几冬。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3k9x9ejj60j60aiabl02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3k9xhnqj60j60cadi302.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3kaf54rj60j60b6djk02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3k9xjhij60j60asta602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3k9zjhfj60j60bfq6c02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3ka0mmrj60j60ax77c02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3ka1tinj60j60aytad02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3ka46w9j60j60aq0tu02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gkk3ka5zbtj60j60ahtbf02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 08:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 寒入山中寺，今晨雪意逢[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3j0104rj60j60sr10o02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3izwr6lj60j60csdj202.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3izxhwdj60j60cs42k02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3izy0mbj60j60t041v02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3j01kxbj60j60sr10i02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3izwqjnj60j60cs41n02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3izzp12j60j60cs42e02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3j02q7tj60j60ss76n02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkk3j02o86j60j60srjtf02.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-11 06:21:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 光含半床月，影入一枝花[月亮]晚安[月亮] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45icsygj60j60ee0wx02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45ieoe0j60j60eedkq02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45idm5tj60j60eeaex02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45ido4mj60j60eediy02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45ie285j60j60eemym02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45ih1gsj60j60eeahi02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45iifsij60j60ee7au02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45ikqu2j60j60ee41k02.jpg" width=33%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1gkj45iluvoj60j60eeah602.jpg" width=33%>
+</p>
+<font color=red size=1>2020-11-10 22:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 公众号最新动态：1、 盘点那些气吞山河，让人血脉喷张的诗词   2、盘点最触动心灵的三十句古诗词
 ### 关注V X公众号：“最美诗画“(shihua751 )每天都有精彩内容邀你欣赏！ ​
 ===========================================
