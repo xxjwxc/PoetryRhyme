@@ -12,6 +12,93 @@
 
 -----------------------------------
 ===========================================
+### 三间寺，水窗斜闭
+### 一声磬，林香暗结 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbmcjoj60j60eemyp02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbmm7dj60j60eegmx02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbnoxtj60j60een0e02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzblvb1j60j60cqaak02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbm4ygj60j60crmy202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbnq8wj60j60eeq6002.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbruepj60j60cgabk02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbtdumj60j60eewh602.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kzbudyfj60j60cqq3u02.jpg" width=33%>
+</p>
+<font color=red size=1>2021-01-29 16:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 缟衣仙子变新装，浅染春前一样黄。
+### 不肯皎然争腊雪，只将孤艳付幽香。
+### 
+### —— 郑刚中《腊梅》 ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtfin5j60j60degmm02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtfnlkj60j60csmy702.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtfvtgj60j60cswfa02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtfwo2j60j60cpwf202.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtfd10j60j60e6q3402.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtjj2cj60j60cs3zi02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtkdmmj60j60egjsg02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtm9g9j60j60bmdgf02.jpg" width=33%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1gn3kxtmpxrj60is0cegmq02.jpg" width=33%>
+</p>
+<font color=red size=1>2021-01-29 14:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 风静箫声来世外，日长仙境在人间。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8qybbj60j60srwm202.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8mjxtj60j60d8aav02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8mdqfj60j60bw0tw02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8mbpjj60j60bwt9n02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8mvw3j60j60ceabr02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8my2fj60j60by0tl02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8rq4uj60j60c140w02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8sgkrj60j60c7wfk02.jpg" width=33%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1gn3kw8t292j60j60ciacm02.jpg" width=33%>
+</p>
+<font color=red size=1>2021-01-29 12:20:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 暗香浮动，争似孤山先探梅。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufa2goj60j60csgn802.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufabobj60j60cs0u702.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufbye3j60j60srad202.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufa30mj60j60csab102.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufcgsaj60j60srtbl02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufajelj60j60cs75g02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufcvl1j60j60csgmx02.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufear0j60j60cs76102.jpg" width=33%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1gn3kufeaycj60j60csab102.jpg" width=33%>
+</p>
+<font color=red size=1>2021-01-29 10:20:03 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 心入虚无行火候，内景内象壶中天。 ​
 ===========================================
 
