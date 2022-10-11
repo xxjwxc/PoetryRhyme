@@ -12,6 +12,29 @@
 
 -----------------------------------
 ===========================================
+### 手中白团扇，净如秋团月[月亮]晚安[喜] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrs2zyj60j60srq4i02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrq2dqj60hs0f3jro02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqru1kbj60j60wp77002.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrqq6ij60j60q9jrl02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrqbb4j60bj0ljmyb02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrtm2uj60j60wzwhh02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqru0y9j60bc0idjsa02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrubugj60j60csq3t02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h70iqrwaftj60j60srwho02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-10 22:43:00 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### “真者，精诚之至也。不精不诚，不能动人。故强哭者虽悲不哀，强怒者虽严不威，强亲者虽笑不和。”
 ### ——庄子
 ### 
