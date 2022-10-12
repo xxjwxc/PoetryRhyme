@@ -12,6 +12,66 @@
 
 -----------------------------------
 ===========================================
+### “欲穷千里目，更上一层楼。”
+### ——王之涣
+### 
+### 大意：想看到更远更广阔的景物，你就要再上一层楼。
+### 
+### 心得：环境，会限制一个人的眼界。古有孟母三迁，今有择校而居，足以说明这个道理。没人生来杰出，一切事在人为。 http://t.cn/A6ovQRNq ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h72fyx6g33j60u00k0gmd02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-12 13:30:43 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 卧看流星[月亮]晚安[可乐] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2keqij60j60d23z902.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2lf8zj60j60ekglu02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2lrn5j60g90cv40802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2kzl0j60j60cdjsf02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2mxlwj60j60egwfx02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2lbuej60j60dngmw02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2opgpj60j60c60uj02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2rlfdj60j60pegmr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h71oh2rz4sj60j60efwfz02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-11 23:46:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 三花两草，茶边一笑。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0qs5ij60j60iltao02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0qqj1j60j60ij0uk02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0swbrj60j60s8aeq02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0quv9j60j60rwjtr02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0sq4vj60j60cqab402.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0rth8j60j60ihn0x02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0umxaj60j60kmgo902.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0w9e0j60j60s0ad202.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h71og0x745j60j60j5gnm02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-11 21:38:20 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 手中白团扇，净如秋团月 ​
 ===========================================
 
