@@ -12,24 +12,6 @@
 
 -----------------------------------
 ===========================================
-### 提高代谢，慢慢就会瘦下来~ ​
-===========================================
-
-<p align="center" margin: 0 auto;>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axulu7eqj60u01400tv02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axup8wdsj60u0140tau02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axut6ccyj60u0140jxt02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axuwxhh0j60u01407b002.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axv0o1isj60u014041h02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axv4ddg5j60u03by7i202.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7axv7lsp4j60u0107t9u02.jpg" width=30%>
-</p>
-<font color=red size=1>2022-10-19 22:10:00 </font>
-
------------------------------------
-
------------------------------------
-===========================================
 ### 何心轻举氛尘外，但愿闲居岁月长。 ​
 ===========================================
 
