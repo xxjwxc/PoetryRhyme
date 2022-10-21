@@ -144,21 +144,6 @@
 
 -----------------------------------
 ===========================================
-### 提高代谢，慢慢就会瘦下来~ ​​​​
-===========================================
-
-<p align="center" margin: 0 auto;>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqbam2fj60u01403zn02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqef0moj60u0140gpi02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqi73tej60u01400vm02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqlwcpcj60u0140goq02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqp6qyqj60u0140n0802.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqsl2icj60u03bytyv02.jpg" width=30%>
-<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h77hqvy4f3j60u01070tt02.jpg" width=30%>
-</p>
-<font color=red size=1>2022-10-16 22:20:01 </font>
-
------------------------------------
 
 -----------------------------------
 ===========================================
@@ -256,20 +241,6 @@
 
 -----------------------------------
 ===========================================
-### 提高代谢，慢慢就会瘦下来~ ​​​​
-===========================================
-
-<p align="center" margin: 0 auto;>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754iua8tzj60u01403zn02.jpg" width=30%>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754ixox68j60u0140gpi02.jpg" width=30%>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754j0iy36j60u01400vm02.jpg" width=30%>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754j3w4dbj60u014077e02.jpg" width=30%>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754j6nv2aj60u01407b302.jpg" width=30%>
-<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h754ja9ybbj60u03bygzd02.jpg" width=30%>
-</p>
-<font color=red size=1>2022-10-14 22:20:01 </font>
-
------------------------------------
 
 -----------------------------------
 ===========================================
