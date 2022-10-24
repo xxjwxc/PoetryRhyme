@@ -12,6 +12,248 @@
 
 -----------------------------------
 ===========================================
+### 少想没用的事，不理无所谓的人，
+### 把时间和金钱，都留给爱你的人。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7g57eensgj60u00i0aaa02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-24 09:56:18 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 霜降鸿声切，秋深客思迷 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wwjnjj60j60srtdn02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wpktwj60j60cstag02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wpv78j60j60cs40v02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wp6b3j60j60cp0tu02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wu30ij60j60srmzy02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1ws85sj60j60cswh402.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wvessj60j60cs0un02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wx8ujj60j60csq4302.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fk1wwvmtj60j60cs0vh02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-23 22:51:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 接彩运 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7fe2c7120j60j60f8dgh02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-23 18:17:09 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### &#34;人生如逆旅，我亦是行人。&#34;
+### ——苏轼《临江仙·送钱穆父》
+### 
+### 大意：人生就是一趟艰难的旅程，你我都是那匆匆过客。
+### 
+### 心得：人生啊，就如在不同的客栈停了又走，走了又停。人不应为过往伤怀，而应豁达处事，不要徒增自己的烦恼。 http://t.cn/A6SfVftf ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7f68avi46j60u00k0wf502.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-23 13:46:05 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 你所浪费的今天，
+### 是昨天死去的人奢望的明天。
+### 你所厌恶的现在，
+### 是未来的你回不去的曾经。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7f20psehbj60u00k1acu02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-23 11:20:39 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 夜归长傍酒家灯 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7efq6lj6tj60j60iw74w02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-22 22:45:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 提高代谢，慢慢就会瘦下来~ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeu1gj5uj60u01400tv02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeu3lr00j60u0140tau02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeu5oqhej60u01400vm02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeu8562lj60u0140ad602.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeua9cj8j60u01407ar02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeud0ny6j60u03bywst02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7eeuetnfjj60u01070tt02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-22 22:15:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 静候春华秋实，坐看一花一木。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8ihxyj60j60h3mxt02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8i9mqj60j60fkacj02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8k1z1j60j60c977702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8kqqfj60j70f0q4y02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8pfcnj60j60c9q5h02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8k5x8j60j60fb75m02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8m7e9j60j60ci76d02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8nza3j60j60bcdhi02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7e5l8oewfj60j60dtjth02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-22 16:38:19 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “寄蜉蝣于天地，渺沧海之一粟。”
+### ——苏轼《前赤壁赋》
+### 
+### 大意：我们如同蜉蝣置身于广阔的天地中，像沧海中的一颗粟米那样渺小。
+### 
+### 心得：你我都是微弱且渺小的生命，如蜉蝣一般，朝生夕死，朝露溘至。面对有且仅有一次活着的机会，我们怎么还能不努力一把？ http://t.cn/A6SfVftf ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h7dvi7qyxxj60u00l7taq02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-22 10:49:26 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 转兆运 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7d9idknubj60j60ont8v02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-21 22:50:02 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 瑟瑟寒风起，野色入深秋。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1he7tj60j60cr78702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1exdgj60j60c5q4z02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1fyk5j60j60cq41502.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1g7jwj60j60cq0v702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1hlrcj60j60cqtbk02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1g27fj60j60cu76s02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1mqe8j60j609k0uj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1o1wsj60j60cmgnn02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7cxa1qtb6j60j60csjuk02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-21 15:05:14 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 秋山寂寂秋水清，寒郊木叶飞无声。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmznrp1j60j60dqdio02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmzn8y9j60j60dujtf02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmzuhu7j60j60ouwke02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmzmk06j60j60dr40002.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmznj8ij60j60dudis02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmznswuj60j60dutav02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmzsoo0j60j60du0wg02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmzsuukj60j60dvju902.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bwmztv9nj60j60dzq5502.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-20 17:57:30 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 李清照： 宋代女词人，婉约派代表，有”千古第一才女“之称
+### 李煜：”诗词皇帝“，在晚唐五代词中别树一帜，对后世词坛影响深远
+### 纳兰性德：清代最著名词人之一，词风哀婉动人
+### 仓央嘉措：西藏最具代表的民歌诗人，诗风细腻真挚 http://t.cn/A6o60kpZ ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwqeakuj60go0b4wfm02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwqlpgij60go0b4dgx02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwqrqx7j60go0b4ab702.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwqxak4j60go0b4gmr02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7btw10qs8j60m80m840602.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwr2ldlj60go0b4t9t02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwr8f5tj60go0b4gmp02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwrgz3uj60go0b4wfk02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7btwrmvnvj60go0b4ab402.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-20 16:30:51 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 寻找岁月的痕迹 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1x6dzj60j60d8mye02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1yl9zj60j60gz76002.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1xrvgj60j60cstak02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1wz2bj60j60cbaay02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1ymo6j60j60qzwgh02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz1y5opj60j60bo76502.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz21lv5j60j60cignh02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz239btj60j60e93zz02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7bmz22m47j60j60cowg102.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-20 12:23:08 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 何心轻举氛尘外，但愿闲居岁月长。 ​
 ===========================================
 
