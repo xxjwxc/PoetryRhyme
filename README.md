@@ -12,6 +12,29 @@
 
 -----------------------------------
 ===========================================
+### 抛却红尘百里馀，乌蓬时傍小桥居。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjq03wj60j60czwga02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjswg8j60j60dydij02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjrtqwj60j60e5myr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjqb2kj60j60djtae02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjpa5pj60j60c7gnb02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjpfiqj60hu0cd0uj02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjwhidj60j60jaq4702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjvqmlj60h60catak02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7hdzjxx8yj60j60ssdni02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-25 11:45:34 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 少想没用的事，不理无所谓的人，
 ### 把时间和金钱，都留给爱你的人。 ​
 ===========================================
