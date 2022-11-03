@@ -12,6 +12,443 @@
 
 -----------------------------------
 ===========================================
+### 转 · 红运临门 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7rq05zb8jj60j60onmze02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-03 10:17:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 提高代谢，慢慢就会瘦下来~ ​​​​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r55uzz0ij60u0140mzj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r55yot9nj60u0140n0h02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r561uaduj60u0140jxt02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r565lf3sj60u0140jy702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r56910hgj60u01407ar02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r56cltszj60u0140dlo02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r56idslzj60u014079x02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7r56mif7uj60u03byno702.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-03 08:00:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 迷茫的时候就读书，
+### 害怕的时候就行动，
+### 愤怒的时候就闭嘴，
+### 不要让情绪占据自己的大脑。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r57v3t2jj60u00gwdge02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-03 06:00:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 今夜相思几许。秋雨，秋雨，一半因风吹去。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7a8waj60j60oedh202.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7bwf2j60j60c0wff02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7g5mdj60j60d3aam02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7af9ej60j60caq4k02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7a0kjj60j60g3dgg02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7afl6j60j60c975h02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7f19kj60j60cmmyg02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7fftzj60j60bpjs202.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7r0s7fmdzj60j60cc0tz02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-02 22:54:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 寂静幽居，叶落闲阶 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gfqmsj60j60c90th02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gffmtj60j60cidgo02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gg4msj60j60cfgmd02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gg035j60j60c6q4002.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gif9oj60j60ru75i02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gfx7lj60j60dwaay02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gli5oj60j60cg40e02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gl3lvj60j60c7gmm02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7pz7gldzvj60j60cfdh102.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-01 22:04:17 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 十一月 · 转大吉 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7plhwvba8j60j60o976a02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-01 14:09:56 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 湖平幽径近，船泊夜灯微 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk76ngsj60j60bjdga02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk77iv4j60j60ph75402.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk76neyj60j60ddt9j02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk773obj60j60d7js802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk76tbij60j60d6mxl02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk77psaj60j60eg3za02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk7b0rej60j60cvwes02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk7b5kcj60j60dmdge02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7oqk7ca2nj60j60ra3zo02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-31 22:23:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 深秋庭发黄金桂，积雨阶生碧玉苔。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5hyvzj60j60c9dgk02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5igvsj60j60c474x02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5k7s6j60j60rodh802.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5lc3uj60j60s3taw02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5k3pbj60j60rk3zx02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5kzfwj60j60rq76m02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5m09lj60j60cat9j02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5nuetj60j60qot9x02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7oqh5prntj60j60c4mxy02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-31 20:16:38 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “独往独来，是谓独有。独有之人，是谓至贵。”
+### ——庄子
+### 
+### 大意：能够享受孤独，是世间仅有的品质；而拥有自足的人格世界的人，是尘世间稀少而可贵的。
+### 
+### 心得：叔本华曾说：“只有当一个人独处的时候，他才可以完全成为自己。谁要是不热爱独处，那他也就是不热爱自由。”活得孤独是常态，享受孤独才是 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7nbsn3focj60u00gwta402.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-30 15:03:07 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一叶一秋心 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61olzmrj60j60csjt002.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61oo4j2j60j60csgnx02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61omislj60j60cs0uv02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61oo87sj60j60csq5b02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61oo50rj60j60dojue02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61orpkuj60j60j6agh02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61osxz4j60j60ctab902.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61ot624j60j60c40tr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7n61ottqhj60j60eemzl02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-30 11:44:14 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 人语村村好，鸡声处处闻 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mcclf2hzj60j60cggnw02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccle0zkj60j60c5dgp02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccley6wj60j60d0q4c02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccle5u1j60j60cbgm902.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mcclg2hnj60j60qfgox02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccle1iwj60j60cd3z102.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccljut7j60j60cj0uh02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mcclks59j60j60ccgoa02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7mccljzt4j60j60cddgf02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-29 23:41:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 无事时心能静，有事时心能定。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c92rs4j60j60cmta602.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c929y1j60j60b7gml02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c93e31j60ha0pzq4n02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c927ilj60d10jgwfn02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c91u7hj60dw099t8z02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c92ir1j60go0b3dhe02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c96vizj60j60cogmc02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c981rvj60hs0plgns02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7m3c97eofj60go0b3wfy02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-29 13:25:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 夫妻终身伴，结对宜相投；
+### 志同道合好，择貌非良筹。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb97b6yfj60u00k0gmh02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-29 06:40:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 茶，品人生浮沉
+### 禅，悟涅盘境界 ​​​
+###  ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k3zi5j60j60cdwfe02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k5gdmj60j60rsgn002.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k8fkvj60j60s10wv02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k5gnhj60j60rf75s02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k55vlj60j60dy40402.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k4bixj60d20humxw02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k9md9j60j60wr41l02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7k921oj60j60c5gls02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7lb7kafc0j60j60v30v602.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-28 22:40:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### #西北边塞到底有多美# 西北具有广阔无际的沙漠、有碧草连天的草原、还有各种各样的山峰和湖泊，今天给大家分享一些描写边塞风光的诗词名句，以后去大西北旅游的时候，和诗词一起感受边塞之美。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2radrlsj60go0b4wfk02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2raefwij60go0b4jsh02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2radpbrj60go0b43zm02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2rae2qvj60go0b475f02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2rafk1rj60go0b4jsi02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2raf8udj60go0b4q4402.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2rai27dj60go0b4gmr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2rb4qwhj60go0b475g02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7l2raidquj60go0b4dh102.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-28 16:19:35 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 停车坐爱枫林晚，霜叶红于二月花。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkm6urj60j60rwadj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszknsetj60j60rtdkx02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkmbdlj60j60rvq7702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkni31j60j60rmaer02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkln5fj60j60s7acm02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkm42nj60j60s0djp02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszkrzfmj60j60s80xr02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszksi8cj60j60rk42c02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7kszku3x7j60j60ruwjd02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-28 10:41:17 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 提高代谢，慢慢就会瘦下来~ ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hbp6v6j60u0140mzj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hfo7qjj60u0140n0h02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hjer5zj60u0140tew02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hokvpjj60u0140gsl02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hsixf8j60u01407ar02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6hx5fl7j60u03bye7c02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k6i0qf7sj60u01070xg02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-28 08:00:03 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 人之所以会心累，
+### 就是常常徘徊在坚持和放弃之间，
+### 举棋不定。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7k60pafdhj60u00k078q02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-28 06:32:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 红福到 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7k5xu11t5j60j60evgmi02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-27 23:32:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一片秋香世界，几层凉雨阑干。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojacyoxj60j60ckmyj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojads1lj60j60ci75z02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojac88aj60j60cm0ty02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojacyhbj60j60co76p02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojam1k1j60h008uaab02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojacbhqj60j60comyh02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojagzmrj60j60cktai02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojahj8dj60j60ch0v302.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7jojaj3qbj60j60iwq5902.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-27 11:21:42 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 桂香听月醉，山静任人痴 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00efwgij60hs0dbdh002.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00efmtqj60j60dujrr02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00egbi0j60c8087dg002.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00efw75j60hs0b1t9m02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00eha85j60j60mz40j02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00ehk18j60j60nv40p02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00ek2jgj60j60dnq4302.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00ejc75j60c8087aa602.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7j00enfcdj60j60qtmzb02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-26 23:20:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 天上繁霜降，人间秋色深。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2ozitcj60j60csael02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p11smj60j60cs0y802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p7dpdj60j60sr7iu02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p0k6sj60j60cswk702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p0q68j60j60sr79p02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p2bizj60j60cs45h02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p65cmj60j60e8gq802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p9zpfj60j60pkk2t02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7in2p92zaj60j60csjxb02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-26 13:45:34 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “千丈之堤，以蝼蚁之穴溃；百步之室，以突隙之烟焚。”
+### ——《韩非子·喻老》
+### 
+### 大意：千里大堤，因为有蝼蚁在打洞，可能会因此而塌掉决堤；百尺高楼，可能因为烟囱的缝隙冒出火星引起火灾而焚毁。
+### 
+### 心得：千里之堤溃于蚁穴，有些问题看起来确实是小问题，一旦被忽略就会由小引大，终会造成无可挽回的后 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h7ijl8npjej60u00daabn02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-10-26 11:44:59 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 疏花香静入轻衣 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q3p43j60j60ctt9h02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q3cpuj60j60csgm302.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q46twj60j60ctdgr02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q3pobj60j60crgm202.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q3k4zj60j60c1t9302.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q3ojtj60j60csdg902.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q7vtmj60j60cswes02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q8fckj60j60crt9d02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7hv7q98d1j60et0m8wf902.jpg" width=30%>
+</p>
+<font color=red size=1>2022-10-25 22:49:00 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 抛却红尘百里馀，乌蓬时傍小桥居。 ​
 ===========================================
 
