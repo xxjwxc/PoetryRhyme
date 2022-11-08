@@ -12,6 +12,157 @@
 
 -----------------------------------
 ===========================================
+### 人生三修炼：
+### 看得透想得开，
+### 拿得起放得下，
+### 立得正行得直。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7ujabnisaj60u00k0jv502.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-06 06:20:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 流淌的时光 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6ajz3dj60j60s742d02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6ahlxaj60j60ft76e02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6aisauj60j60p3juh02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6aigjgj60j60pomzk02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6ahke9j60j60fj3zx02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6agd3pj60j60cztab02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6am8hej60j60ftdgw02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6amolij60j60ruwgs02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj6anu5nj60j60cemyv02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-05 22:58:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 事事转顺 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r2ft7j60j60fedh902.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r3ewmj60j60lj76i02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r3pdpj60j60mhmzp02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r370pj60i70jadhs02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r2kyxj60j60ea3zr02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r2q8rj60j60hj75o02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r7g6kj60j60g50u302.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r88zej60hg0eqwfr02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7uj4r7x1mj60j60e6ta202.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-05 20:35:54 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 招财进福 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7taijlj37j60j60rumzt02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-04 22:59:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### “何须更问浮生事，只此浮生是梦中。 ”
+### ——鸟窠禅师
+### 
+### 大意：为什么还要在意这短暂虚幻的人生之事呢？（难道不知道）这大千世界，这浮生俗世都像是一场梦而已。 http://t.cn/A6oH3cmx ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7sylhsy1wj60u00k1ju302.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-04 11:59:52 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 花明不是月，夜静偶闻香 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xlu3f7j60j60eegml02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xlu2dpj60j60eeaax02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xlsb0tj60j60ee3yu02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xluyhsj60j60eejry02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xltsjaj60j60eemxu02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xltsc7j60j60eegm202.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xm01xaj60j60eeaas02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xlzqusj60j60ee3ze02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7s9xm06y2j60j60eet9802.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-03 22:51:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 最是晚村堪画处，夕阳红挂树梢头。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5blp9j60j60pe0v702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5ktxdj60j60sj42702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5f8ndj60j60pk78s02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5bwt9j60j60rracw02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5amh4j60j60j2jt502.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5bkctj60j60gumzt02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5ihrbj60iz0sg43w02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5i91fj60j60ddmy802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7s9w5juq6j60j60dwgny02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-03 21:45:07 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### #国学知识# #中华好诗词# 
+### 杜牧：二十四桥明月夜，玉人何处教吹箫？
+### 张乔：刺史十年曾结币，仙郎终日教吹箫。
+### 朱权：三十六宫秋月白，美人花下教吹箫。
+### 李进：回首可怜歌舞地，玉人何处教吹箫。
+### 史鉴：羽客腰缠思驾鹤，玉人携手教吹箫。 http://t.cn/A6oTaMBW ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl04mbrj60mf0ep0ur02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl0br5yj60hn0c7gn602.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl0n6daj60hg0azjtg02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl0y9yaj60he0ayad102.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl147q9j60ad0avt9s02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl1b0y6j60kz0eowfq02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl1imarj60fa0a840502.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl1pnduj60er0bvmxy02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly8h7rwl220kej60km0bnq4c02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-03 14:04:45 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 转 · 红运临门 … ​
 ===========================================
 
