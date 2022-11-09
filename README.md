@@ -12,6 +12,204 @@
 
 -----------------------------------
 ===========================================
+### 生活就好比一个战场，
+### 如果你想得到一样东西，
+### 就必须拼命去争取。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1sei7gsj60u00k0mym02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-09 06:42:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一切大吉 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5o0hqj60j60hsabl02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5p1kzj60j60ocjto02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5p51wj60j60s0myz02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5qelyj60j60jrmzp02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5p609j60j60mtabh02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5p1jmj60hm0i2jsw02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5ullyj60j60i875w02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5upczj60j60bv75402.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7y1q5w2amj60j60e10ub02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-08 22:42:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 人间处处有花香 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1ouaqltj60j60ckq4702.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1ouayyxj60j60cdabt02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1oub9kej60j60cfgne02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1oub4rfj60j60bg75y02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1oubkimj60j60ckac002.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1oubbtmj60j60cd40a02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1oufu05j60j60c140202.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1ougf4aj60j60bj0u502.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7y1ouhpubj60j60qsgq402.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-08 21:34:41 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 休对故人思故国，且将新火试新茶。诗酒趁年华。
+### ---------苏轼《望江南·超然台作》
+### 
+### 大意：不要在老朋友面前思念故乡了，姑且点上新火来烹煮刚采摘的新茶，作诗醉酒，趁着青春年华尽情欢乐啊。 http://t.cn/A6SfVftf ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h7xk9be35ej60j60ftdgw02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-08 11:32:08 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 自由不是让你想做什么就做什么，
+### 自由是教你不想做什么，
+### 就可以不做什么。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7wqpch0yzj60u00jx0x402.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-08 06:32:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 寂静幽居，叶落闲阶 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv6m50j60j60c90th02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv73l1j60j60cidgo02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv6wz8j60j60cfgmd02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv71wxj60j60c6q4002.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv9k98j60j60ru75i02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnv6sptj60j60dwaay02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnve4vgj60j60cg40e02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnvci2rj60j60c7gmm02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7wqnvcftnj60j60cfdh102.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-07 23:32:01 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 秋天如镜空，楼阁尽玲珑。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvo44jj60j60efq5j02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvn98wj60j60d83zu02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvrgtjj60j60o7gqk02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvos21j60j60cj0ve02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqm8z1c0j60j60s70wh02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvppnvj60j60bltaj02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvu50vj60j60a7dif02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvuolwj60j60czgoi02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h7wqlvv9rwj60j60dw0wj02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-07 18:26:05 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 活着，是一件很美好的事情。
+### 既然来到人间，便去爱，去经历，去感受，去欣赏一切微小的欢喜。
+### ---------《一禅小和尚》 http://t.cn/A6on5qmD ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who4ja23j60fd09sdgd02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who4ucv3j60jg0bigme02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who56tphj60j00b9gn102.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who5dkadj60hp0av0u002.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who5krljj60gr09x75702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who5vlbwj60g60biwgc02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who62gdvj60ic0c575802.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who69xukj60gl0b8t9o02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly8h7who6glx3j60k90cggmk02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-07 13:16:39 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 人生最遗憾的，
+### 莫过于轻易地放弃了不该放弃的，
+### 固执地坚持了不该坚持的。
+### ——柏拉图
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h7vq9kmwcoj60j60j2jt502.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-07 06:32:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一枝红艳露凝香 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq7dzaknj60j60r8t9i02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-06 23:32:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 秋果红运 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6oc44mj60j60rpmyt02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6oar0sj60j60c2jrr02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6ob45ij60j60cdaap02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6oaw0gj60j60e3my002.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6oaoprj60j60cgt9c02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6ob8klj60j60cdmxq02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6og2w0j60j60pcdi602.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6of9w4j60j60dmt9a02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7vq6oi065j60j60rcjst02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-06 21:25:32 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 人生三修炼：
 ### 看得透想得开，
 ### 拿得起放得下，
