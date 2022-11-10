@@ -12,6 +12,58 @@
 
 -----------------------------------
 ===========================================
+### “为善不见其益，如草里的冬瓜自暗应长。”
+### ——《菜根谭》
+### 
+### 大意：行善没有见到报答，好比草丛里的冬瓜，即使人眼看不到，它照样茁壮成长。
+### 
+### 心得：俗话说，“积德虽无人见，行善自有天知。”“积善之家，必有余庆；积不善之家，必有余殃。”生在这嘈杂的人世间，真诚善良就是我们最好的风水。乐善好 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h8004cvofgj60u00k1tbk02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-10 14:11:33 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 一花开五叶，结果自然成 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h7z4y1lez7j60j60cj0tp02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-09 23:20:02 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 花香不出林，谁识蕙兰心。 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3e7b5j60j60ki0ug02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3euvsj60j60sr40v02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3c7slj60j60csaav02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3c59yj60j60csmy102.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3c07ij60j60csq3h02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3g7skj60j60srq6c02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3hnusj60j60csgm702.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3k6rij60j60srgo602.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h7z4x3k8cpj60j60csgmz02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-09 20:12:14 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 生活就好比一个战场，
 ### 如果你想得到一样东西，
 ### 就必须拼命去争取。
