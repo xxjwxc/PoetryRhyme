@@ -12,6 +12,62 @@
 
 -----------------------------------
 ===========================================
+### 晚饭出门新雨过 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv17qbj60j60c6abp02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv2gnhj60j60srwim02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv216sj60j60c60ur02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv0wypj60j60cb40102.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89aguzioxj60h008uaab02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv19rjj60j60s041702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv6ltmj60j60bjwfy02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv68p1j60j60cj75402.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h89agv6f96j60j60ccjsb02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-18 17:06:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 红运降临 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h89afn30d3j60j60injsi02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-18 14:58:27 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 何须浅碧深红色，自是花中第一流。
+### ——李清照《鹧鸪天·桂花》 http://t.cn/A6KhyFmk ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896asqkf2j60j60x0q9602.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896aszf7yj60j60x4ae002.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896at6qd2j60j60ven4x02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896atigq9j60j60x9jy302.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896atu0bnj60j60w70xo02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896au39xgj60j60x8ah602.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896aucatrj60j60x2dna02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896aulggbj60j60vujyv02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly8h896ausiyyj60j60wz42n02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-18 12:35:33 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 春有百花秋有月，夏有凉风冬有雪。
 ### 若无闲事挂心头，便是人间好时节。
 ###  ​
