@@ -12,6 +12,43 @@
 
 -----------------------------------
 ===========================================
+### 长风随入夜，吹作雪花飘[雪花]晚安[雪花] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayf8daj60j60dp0u902.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayfuhoj60j60e5q4x02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayfzjgj60j60blq4g02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayfzthj60j60d10ur02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayfqy3j60j60cijt702.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ayg1f9j60j60cbjtb02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7aylo33j60j60c3ta402.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7aymcm7j60j60c976b02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7aymgfxj60j60bz40002.jpg" width=30%>
+</p>
+<font color=red size=1>2022-11-29 23:08:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 环境不能决定你是否快乐，
+### 你对事情的反应才决定你的心情。
+### [心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8m7ck8lwuj60u00k0tai02.jpg" width=90%>
+</p>
+<font color=red size=1>2022-11-29 23:08:00 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 飞雪有声，惟在竹间最雅。 ​
 ===========================================
 
