@@ -12,6 +12,205 @@
 
 -----------------------------------
 ===========================================
+### 长江后浪推前浪，世上新人赶旧人。
+### -------《增广贤文·上集》
+### 
+### 解释：长江的后浪推着前浪一步一步的前进，一浪胜过一浪。世上的今人踏着前人的脚步，一代胜过一代。警示：不要止步不前，否则将被超越。 http://t.cn/A6KIATDL ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/b231ac75ly8h8zphr2we3j20ho0be75s.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly8h8zphrb2ydj60m30dj40s02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-11 11:24:11 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 不经一番寒彻骨，怎得梅花扑鼻香[心]早安[心] ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylprdar1j60j60alt9002.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylpre39lj60j60cmjs702.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylprev7jj60j60cjgn902.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylpre35gj60j60cgaao02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylpre2cij60j60cg74s02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylprgbfpj60j60t80vk02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylprix8aj60j60th76b02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylpriusoj60j60cgt9102.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8ylprlknsj60j60d2ta802.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-11 06:31:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 立体的画，无声的诗 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo753xuj60j60afta502.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo76dv7j60e80hx0u502.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo79a8pj60j60nlwhv02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo78jenj60j60mugo102.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo78uv3j60j60nwq6802.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo780dnj60j60n9q5902.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo7b455j60hs0bwq3w02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo7brt7j60e80i5ab102.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylo7d5d6j60hs0bv75802.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-10 22:31:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 云静好风吹 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3uxd8j60j60bxwey02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3z3bzj60j60s10vo02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3v3epj60j60cd3zh02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3uk1yj60j60c9glx02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3wq9rj60j60p8q4e02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3xz8xj60j60rl0wa02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm3zh8dj60j60cbt9o02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm43z12j60j615jwiu02.jpg" width=30%>
+<img src="http://wx1.sinaimg.cn/large/006qmtKlly1h8ylm41wzhj60j60c3q3f02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-10 16:31:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 千秋大业 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklh0ijj608o09jt8y02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklhvjsj60ai0ao3yr02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklhwkij60c60a4q3c02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklizwvj60gx0fimxu02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklkdvlj60j60f7t9j02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklmzo3j60b40b4jrm02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklmrmqj60dk0b9q3q02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklm48yj609u089wel02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8ylklnsevj60fj0hg3z902.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-10 12:22:56 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 月色朦胧 ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv1x6hj60j60d80te02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv6a9nj60j60s2go402.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv38fuj60j60fhabm02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv3i83j60j60ebmyl02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv39anj60j60ft75j02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv3buqj60j60dj3zg02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv81vpj60j60ebq4d02.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv853fj60j60bemy402.jpg" width=30%>
+<img src="http://wx4.sinaimg.cn/large/006qmtKlly1h8xebv9bxij60j60npjuf02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-09 22:31:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 窗间光影晚来新 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1fukhj60j60id0vz02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1c5voj60j60cljry02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1dmo0j60j60szgnc02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1div4j60j60u875q02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1c76bj60j60clwfg02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1dzrdj60j60t5wgr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1h0fyj60j60pggnd02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1hhwqj60j60qvmza02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xea1hcjdj60j60cmgmj02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-09 16:31:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 福禄临门 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rlagsj60j60nz43p02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rkvrmj60j60nraen02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rjw01j60j60lfn0802.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rjmp7j60j60nzmzr02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rk5iej60j60nzdk902.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rlgscj60j60nz43p02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rmpowj60j60csgnh02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rpj3cj60j60n443l02.jpg" width=30%>
+<img src="http://wx2.sinaimg.cn/large/006qmtKlly1h8xe8rprb5j60j60id0vz02.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-09 11:23:47 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 远市长街，吟对黄昏  ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt5od8j60j60cd40a02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt7ckej60fp0fbq4102.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt57swj60j60c9wfr02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt4qrkj60j60bvgn602.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt5jarj60j60c8myo02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xt7m48j60j60qm77d02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xtaq44j60j60b93zz02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xtb8iaj60j60j9dhy02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9xtay5zj60j60dxdh602.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-08 23:04:00 </font>
+
+-----------------------------------
+
+-----------------------------------
+===========================================
+### 傲然雪中鸟 … ​
+===========================================
+
+<p align="center" margin: 0 auto;>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v66eetj60j60j6myd02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v66y6dj60j60j6t9z02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v679ljj60j60idq4y02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v66o94j60j60j6gmx02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v6485gj60dw0cx3yj02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v65y0sj60j60j6ab102.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v6aas0j60j60esmyb02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v6ag3sj60j60dvgmb02.jpg" width=30%>
+<img src="http://wx3.sinaimg.cn/large/006qmtKlly1h8w9v6bh52j60dw0hdq4002.jpg" width=30%>
+</p>
+<font color=red size=1>2022-12-08 16:04:01 </font>
+
+-----------------------------------
+
+
+
+
+-----------------------------------
+===========================================
 ### 茫茫原野一片白，万物冬藏待春来[雪花]晚安[雪花] ​
 ===========================================
 
